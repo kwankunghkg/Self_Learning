@@ -69,14 +69,12 @@ FACTOR (From A Concept TO Reality) 2003 summer
 *
 2021 臺灣燈塔教育節——素養導向教育博覽會
 Taiwan Lighthouse Education Festival
-教育節官方網站｜
+教育節官方網站｜ 
+教育節粉絲專頁｜
 ```
   https://lighthouse.kl.edu.tw/ 
-```
-教育節粉絲專頁｜ 
-```
+  
   https://www.facebook.com/TaiwanLightEDU/
-```
 
 ## ==============================
 ```
