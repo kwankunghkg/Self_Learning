@@ -52,12 +52,12 @@ FACTOR (From A Concept TO Reality) 2003 summer
 ```
   https://www.books.com.tw/products/0010833900
 ```
-藍偉瑩：當你為學生準備未來的同時，也在改變你自己的未來｜親子天下		親子天下 Sep 26, 2017
+藍偉瑩：當你為學生準備未來的同時，也在改變你自己的未來｜親子天下 Sep 26, 2017
 ```
   https://youtu.be/RaxZkN-ahdk
 ```
 
-【臺灣燈塔教育節】藍偉瑩—化教育現場的困難為新的可能性		基隆教主 Streamed live on Sep 11, 2021
+【臺灣燈塔教育節】 藍偉瑩 化教育現場的困難為新的可能性  基隆教主 Streamed live on Sep 11, 2021
 ```
   https://youtu.be/KipHD2Q48Ac?t=615
 ```
@@ -69,9 +69,13 @@ FACTOR (From A Concept TO Reality) 2003 summer
 *
 2021 臺灣燈塔教育節——素養導向教育博覽會
 Taiwan Lighthouse Education Festival
-教育節官方網站｜https://lighthouse.kl.edu.tw/ 
-教育節粉絲專頁｜https://www.facebook.com/TaiwanLightEDU/
+教育節官方網站｜
+``` https://lighthouse.kl.edu.tw/ 
 ```
+教育節粉絲專頁｜ 
+``` https://www.facebook.com/TaiwanLightEDU/
+```
+
 ## ==============================
 ```
 STEM/CS - U.S. Department of Education
