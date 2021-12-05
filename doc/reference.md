@@ -89,6 +89,75 @@ Taiwan Lighthouse Education Festival
   
   https://www.facebook.com/TaiwanLightEDU/
 
+  https://www.facebook.com/teacherlaniris/
+```  
+
+
+幫助每個孩子成功：保羅・塔夫、蘇文鈺、劉安婷│2017親子天下國際教育年會直播回顧		親子天下 Streamed live on Sep 27, 2017
+```
+  https://youtu.be/7_WTISE6rW8
+```  
+(1)00:15:33【美國現場】幫助每個孩子成功│保羅・塔夫(Paul Tough)
+(2)01:30:03【臺灣現場】幫助每個孩子成功│蘇文鈺
+(3)02:17:00 如何透過教育創新，解決貧富差距│陳雅慧、保羅・塔夫、劉安婷、蘇文鈺
+(4)02:35:00 教育創新一百，打破你對教育的想像│陳雅慧
+🎞整天完整直播收錄在此：http://bit.ly/2xvb0fk
+
+(Paul Tough)《Helping Children Succeed：What works and why》
+Grit（恆毅力）、Perseverance（堅持）、Curiosity（好奇）、Optimism（樂觀）、Conscientiousness（自我覺察）、Self-control（自我控制）。這6項能力心理學者稱之為「非認知能力」，教育學者則稱之為「品格優勢」。
+```
+  https://youtu.be/7_WTISE6rW8?t=1209
+```
+Crew
+```
+  https://youtu.be/7_WTISE6rW8?t=3200
+```
+幫助每一個孩子成功 ── 學校裡，有比功課更重要的事
+```
+  https://opinion.cw.com.tw/blog/profile/52/article/6184
+```
+蘇文鈺 Program the World 看見家鄉計劃
+```
+  https://youtu.be/7_WTISE6rW8?t=6400
+```
+motivation
+```
+  https://youtu.be/7_WTISE6rW8?t=9064
+```
+
+孩子如何成功：讓孩子受益一生的新教養方式
+How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
+```
+  https://www.logos.com.hk/bf/acms/content.asp?site=logosbf&op=show&type=product&code=9789573272014
+```
+出版社：遠流
+作者：保羅．塔夫 (Paul Tough)
+譯者：王若瓊、李穎琦
+
+
+
+未來人才與新素養：李崇建、溫美玉｜2017親子天下國際教育年會直播回顧		親子天下 Streamed live on Sep 27, 2017
+```
+  https://youtu.be/TSaSHp-P4no
+```
+教室裡的阿德勒／ＡＩ時代的心素養│溫美玉、李崇建
+
+
+李崇建老師的薩提爾對話練習！用「好奇心」開啟美好溝通｜親子天下 Streamed live on Jul 31, 2018
+```
+  https://youtu.be/tpd1zORz640
+```
+薩提爾對話練習 線上影音課程全系列：https://link.parenting.com.tw/GCXpD46Y
+李崇建老師的薩提爾對話練習！用「好奇心」開啟與家人、朋友的美好溝通。
+不知道該如何和身邊的人開啟對話嗎？
+● 孩子總是不聽你的話，心不在焉？
+● 與伴侶的溝通上總是會碰到意見不一致、難以繼續對話的情況嗎？
+● 如何同理、引導學生，進行平和的對話？
+我們特別邀請到李崇建老師，直播解答溝通難題，教你用「好奇心」開啟美好溝通！
+對話需要練習，你準備好了嗎？
+
+
+
 ## ==============================
 ```
 STEM/CS - U.S. Department of Education
@@ -241,5 +310,5 @@ Cooper Maa (隨筆)
 ## ==============================
 ```
 end of file
-last update 2021-12-05_1754
+last update 2021-12-06_0001
 ```
