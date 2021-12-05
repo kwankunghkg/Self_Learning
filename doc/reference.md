@@ -89,11 +89,15 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
   https://www.ed.gov/sites/default/files/documents/stem/2020-stem-progress-report.pdf
 ```
 
-唐鳳（英語：Audrey Tang，1981年4月18日－）， 是台灣自由軟件程式設計師及政治人物，現任行政院政務委員，曾致力於多項專案的開發維護，是Haskell和Perl社群領導者，也是g0v零時政府核心成員。
+唐鳳@g0v  （Audrey Tang，1981年4月18日－）， 是台灣自由軟件程式設計師及政治人物，現任行政院政務委員，曾致力於多項專案的開發維護，是Haskell和Perl社群領導者，也是g0v零時政府核心成員。
 ```
   https://zh.wikipedia.org/wiki/%E5%94%90%E9%B3%B3
 
+  https://zh.wikipedia.org/wiki/G0v%E9%9B%B6%E6%99%82%E6%94%BF%E5%BA%9C
+
   https://zh.wikipedia.org/wiki/Perl
+  
+  https://zh.wikipedia.org/wiki/Haskell
 
 ## ==============================
 ```
