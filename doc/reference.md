@@ -1,12 +1,12 @@
 
 # Self_Learning / doc / reference.md
-```
-## ============================================================
 
+## ============================================================
+```
 FACTOR (From A Concept TO Reality) 2003 summer
-
-## ============================================================
 ```
+## ============================================================
+
   https://youtu.be/T8v9SFSIAgo?t=3669
 ```  
 61:12	普通年輕人怎麼選擇未來
@@ -39,9 +39,9 @@ FACTOR (From A Concept TO Reality) 2003 summer
 62:14	又有腳踏實地的幹勁
 62:17	你才會有未來
 62:18	否則你就不會有未來 
-
+```
 ## ============================================================
-
+```
 提問力：啟動探究思考的關鍵    作者：藍偉瑩 edu@tw
 ```
   https://activity.books.com.tw/crosscat/show/A00000045055
@@ -70,9 +70,9 @@ FACTOR (From A Concept TO Reality) 2003 summer
 Taiwan Lighthouse Education Festival
 教育節官方網站｜https://lighthouse.kl.edu.tw/ 
 教育節粉絲專頁｜https://www.facebook.com/TaiwanLightEDU/
-
+```
 ## ============================================================
-
+```
 STEM/CS - U.S. Department of Education
 ```
   https://www.ed.gov/stem
@@ -88,9 +88,9 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
   https://zh.wikipedia.org/wiki/%E5%94%90%E9%B3%B3
 
   https://zh.wikipedia.org/wiki/Perl
-```
-## ============================================================
 
+## ============================================================
+```
 Computer science education is a global challenge - 27th Oct 2021 - Sue Sentance 
 ```
   https://www.raspberrypi.org/blog/brookings-report-global-computer-science-education-policy/
@@ -126,9 +126,9 @@ is a web-based visual programming editor for Arduino. BlocklyDuino is based on B
 Create Graphical User Interfaces with Python / 156-page book / Free PDF / October 2020 
 ```
   https://magpi.raspberrypi.com/books/create-guis
-```
-## ============================================================
 
+## ============================================================
+```
 i like him very much...
 
 程式人雜誌 2013年1月號 
@@ -168,10 +168,10 @@ Cooper Maa (隨筆)
 我不打發日子，日子天天打發我
 ```
   http://coopermaa.blogspot.com/
-```
+
 ## ============================================================
 
-```
+
   https://youtu.be/kYdZKrdI4QA?t=3428
 ```
 57:15		人口下降
@@ -192,9 +192,9 @@ Cooper Maa (隨筆)
 58:04		科技靠的是什麼？靠的是教育
 58:07		教育不好
 58:08		科技強不了的
-
+```
 ## ============================================================
-
+```
 雙減後孩子怎樣了? 2021-12-04
 ```
   https://youtu.be/xFp7UMC1YOg
@@ -217,6 +217,7 @@ Cooper Maa (隨筆)
 
 
 ## ============================================================
-end of file
 ```
+end of file
 last update 2021-12-05_1754
+```
