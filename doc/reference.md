@@ -42,6 +42,10 @@ FACTOR (From A Concept TO Reality) 2003 summer
 ```
 ## ==============================
 ```
+藍偉瑩：當你為學生準備未來的同時，也在改變你自己的未來｜親子天下 Sep 26, 2017
+```
+  https://youtu.be/RaxZkN-ahdk
+```
 提問力：啟動探究思考的關鍵    作者：藍偉瑩 edu@tw
 ```
   https://activity.books.com.tw/crosscat/show/A00000045055
@@ -52,10 +56,7 @@ FACTOR (From A Concept TO Reality) 2003 summer
 ```
   https://www.books.com.tw/products/0010833900
 ```
-藍偉瑩：當你為學生準備未來的同時，也在改變你自己的未來｜親子天下 Sep 26, 2017
-```
-  https://youtu.be/RaxZkN-ahdk
-```
+
 
 【臺灣燈塔教育節】 藍偉瑩 化教育現場的困難為新的可能性  基隆教主 Streamed live on Sep 11, 2021
 ```
