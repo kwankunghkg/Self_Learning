@@ -42,7 +42,6 @@ https://youtu.be/T8v9SFSIAgo?t=3669
 
 ============================================================
 
-
 提問力：啟動探究思考的關鍵    作者：藍偉瑩 edu@tw
 https://activity.books.com.tw/crosscat/show/A00000045055
 https://www.books.com.tw/products/0010909171?loc=P_E211118000000026_img_002
@@ -66,6 +65,20 @@ https://youtu.be/KipHD2Q48Ac?t=615
 Taiwan Lighthouse Education Festival
 教育節官方網站｜https://lighthouse.kl.edu.tw/ 
 教育節粉絲專頁｜https://www.facebook.com/TaiwanLightEDU/
+
+============================================================
+
+STEM/CS - U.S. Department of Education
+  https://www.ed.gov/stem
+
+Progress Report on the Implementation of the Federal STEM Education Strategic Plan - December 2020
+  https://www.ed.gov/sites/default/files/documents/stem/2020-stem-progress-report.pdf
+
+
+唐鳳（英語：Audrey Tang，1981年4月18日－）， 是台灣自由軟件程式設計師及政治人物，現任行政院政務委員，曾致力於多項專案的開發維護，是Haskell和Perl社群領導者，也是g0v零時政府核心成員。
+  https://zh.wikipedia.org/wiki/%E5%94%90%E9%B3%B3
+
+  https://zh.wikipedia.org/wiki/Perl
 
 ============================================================
 
@@ -118,5 +131,5 @@ Create Graphical User Interfaces with Python / 156-page book / Free PDF / Octobe
 
 
 ============================================================
-last update 2021-12-05_0202
+last update 2021-12-05_0205
 end of file
