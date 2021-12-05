@@ -1,6 +1,6 @@
 
-# Self_Learning / doc / reference.txt
-
+# Self_Learning / doc / reference.md
+```
 ============================================================
 
 FACTOR (From A Concept TO Reality) 2003 summer
@@ -193,5 +193,6 @@ Cooper Maa (隨筆)
 
 
 ============================================================
+```
 last update 2021-12-05_1744
 end of file
