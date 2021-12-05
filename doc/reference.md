@@ -47,7 +47,7 @@ FACTOR (From A Concept TO Reality) 2003 summer
   https://youtu.be/RaxZkN-ahdk
 ```
 
-未來人才與新素養：葉丙成、藍偉瑩、柯沛寧、周德銘│2017親子天下國際教育年會直播回顧		親子天下 Streamed live on Sep 27, 2017
+未來人才與新素養：葉丙成、藍偉瑩、柯沛寧、周德銘│2017親子天下國際教育年會直播回顧	Sep 27, 2017
 ```
 https://youtu.be/zS_DggqPxsc
 ```
@@ -70,15 +70,20 @@ https://youtu.be/zS_DggqPxsc
 ```
 
 
-【臺灣燈塔教育節】 藍偉瑩 化教育現場的困難為新的可能性  基隆教主 Streamed live on Sep 11, 2021
+【臺灣燈塔教育節】 藍偉瑩 化教育現場的困難為新的可能性  基隆教主 live on Sep 11, 2021
 ```
   https://youtu.be/KipHD2Q48Ac?t=615
 ```
 講者：藍偉瑩｜社團法人瑩光教育協會理事長
 講者簡介：
-擁有國立師範大學科學教育研究所博士學位，著有 《教學力：深化素養學習的關鍵》、《教育，我相信你》。 在超過二十四年的教學資歷中，極度了解學校課程教學與學生學習樣貌，也深度參與課綱相關配套研擬與推動；現在是第一線學校與教師長期且深度的陪伴者，六年來踏遍全臺縣市，陪伴學校解決在師資培育、教師教學、課程設計與社群經營方面的疑難雜症。
+擁有國立師範大學科學教育研究所博士學位，著有 《教學力：深化素養學習的關鍵》、《教育，我相信你》。 
+在超過二十四年的教學資歷中，極度了解學校課程教學與學生學習樣貌，也深度參與課綱相關配套研擬與推動；
+現在是第一線學校與教師長期且深度的陪伴者，六年來踏遍全臺縣市，陪伴學校解決在師資培育、教師教學、
+課程設計與社群經營方面的疑難雜症。
 本場論壇簡介：
-當我們以為教育現場有許多困難需要一一突破的時候，我們卻可能誤將問題的結果當成原因在處理，往往事倍功半或是徒勞無功。重新回到教育本質，看清楚教育現場真正的問題，則我們原以為的困難將轉變為機會點，成為孩子面向未來的契機。
+當我們以為教育現場有許多困難需要一一突破的時候，我們卻可能誤將問題的結果當成原因在處理，
+往往事倍功半或是徒勞無功。重新回到教育本質，看清楚教育現場真正的問題，則我們原以為的困難將轉變為機會點，
+成為孩子面向未來的契機。
 *
 2021 臺灣燈塔教育節——素養導向教育博覽會
 Taiwan Lighthouse Education Festival
@@ -93,7 +98,7 @@ Taiwan Lighthouse Education Festival
 ```  
 
 
-幫助每個孩子成功：保羅・塔夫、蘇文鈺、劉安婷│2017親子天下國際教育年會直播回顧		親子天下 Streamed live on Sep 27, 2017
+幫助每個孩子成功：保羅・塔夫、蘇文鈺、劉安婷│2017親子天下國際教育年會直播回顧 Sep 27, 2017
 ```
   https://youtu.be/7_WTISE6rW8
 ```  
@@ -104,7 +109,9 @@ Taiwan Lighthouse Education Festival
 🎞整天完整直播收錄在此：http://bit.ly/2xvb0fk
 
 (Paul Tough)《Helping Children Succeed：What works and why》
-Grit（恆毅力）、Perseverance（堅持）、Curiosity（好奇）、Optimism（樂觀）、Conscientiousness（自我覺察）、Self-control（自我控制）。這6項能力心理學者稱之為「非認知能力」，教育學者則稱之為「品格優勢」。
+Grit（恆毅力）、Perseverance（堅持）、Curiosity（好奇）、
+Optimism（樂觀）、Conscientiousness（自我覺察）、Self-control（自我控制）。
+這6項能力心理學者稱之為「非認知能力」，教育學者則稱之為「品格優勢」。
 ```
   https://youtu.be/7_WTISE6rW8?t=1209
 ```
@@ -136,14 +143,14 @@ How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
 
 
 
-未來人才與新素養：李崇建、溫美玉｜2017親子天下國際教育年會直播回顧		親子天下 Streamed live on Sep 27, 2017
+未來人才與新素養：李崇建、溫美玉｜2017親子天下國際教育年會直播回顧 Sep 27, 2017
 ```
   https://youtu.be/TSaSHp-P4no
 ```
 教室裡的阿德勒／ＡＩ時代的心素養│溫美玉、李崇建
 
 
-李崇建老師的薩提爾對話練習！用「好奇心」開啟美好溝通｜親子天下 Streamed live on Jul 31, 2018
+李崇建老師的薩提爾對話練習！用「好奇心」開啟美好溝通｜親子天下 live Jul 31, 2018
 ```
   https://youtu.be/tpd1zORz640
 ```
@@ -157,7 +164,7 @@ How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
 對話需要練習，你準備好了嗎？
 
 
-
+```
 ## ==============================
 ```
 STEM/CS - U.S. Department of Education
@@ -170,7 +177,9 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
   https://www.ed.gov/sites/default/files/documents/stem/2020-stem-progress-report.pdf
 ```
 
-唐鳳@g0v  （Audrey Tang，1981年4月18日－）， 是台灣自由軟件程式設計師及政治人物，現任行政院政務委員，曾致力於多項專案的開發維護，是Haskell和Perl社群領導者，也是g0v零時政府核心成員。
+唐鳳 @g0v （Audrey Tang，1981年4月18日－）， 是台灣自由軟件程式設計師及政治人物，
+現任行政院政務委員，曾致力於多項專案的開發維護，是Haskell和Perl社群領導者，
+也是g0v零時政府核心成員。
 ```
   https://zh.wikipedia.org/wiki/%E5%94%90%E9%B3%B3
 
@@ -182,19 +191,23 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
 
 ## ==============================
 ```
-Computer science education is a global challenge - 27th Oct 2021 - Sue Sentance 
+Computer science education is a global challenge - 27th Oct 2021
 ```
   https://www.raspberrypi.org/blog/brookings-report-global-computer-science-education-policy/
 ```
-BUILDING SKILLS FOR LIFE - How to expand and improve computer science education around the world 
+
+BUILDING SKILLS FOR LIFE - 
+How to expand and improve computer science education around the world 
 ```
   https://www.brookings.edu/essay/building-skills-for-life-how-to-expand-and-improve-computer-science-education-around-the-world/
 ```
-Introducing Code Club World : a new way for young people to learn to code at home - 9th Nov 2021 - Laura Kirsop
+
+Introducing Code Club World : 
+a new way for young people to learn to code at home - 9th Nov 2021 - Laura Kirsop
+free online platform where young people aged 9 to 13 can learn to make stuff with code.
 ```
   https://www.raspberrypi.org/blog/code-club-world-free-online-platform-young-people-children-learn-to-code-at-home/
 ```
-Code Club World — a free online platform where young people aged 9 to 13 can learn to make stuff with code.
 
 
 
@@ -202,24 +215,32 @@ Code Club World — a free online platform where young people aged 9 to 13 can l
 ```
   https://blog.cavedu.com/2021/06/18/grove-beginner-kit-for-arduino-3/
 ```
+
 Try Blockly
 ```
   https://developers.google.com/blockly/
   https://github.com/google/blockly
   https://en.wikipedia.org/wiki/Blockly
 ```
+
 BlocklyDuino 
-is a web-based visual programming editor for Arduino. BlocklyDuino is based on Blockly, the web-based, graphical programming editor. Provide static type language blocks and code generators for Arduino programming.
+is a web-based visual programming editor for Arduino. 
+BlocklyDuino is based on Blockly, the web-based, 
+graphical programming editor. 
+Provide static type language blocks and 
+code generators for Arduino programming.
 ```
   https://github.com/BlocklyDuino/BlocklyDuino
 ```
 
-Create Graphical User Interfaces with Python / 156-page book / Free PDF / October 2020 
+Create Graphical User Interfaces with Python 
+/ 156-page / Free PDF / October 2020 
 ```
   https://magpi.raspberrypi.com/books/create-guis
 
 ## ==============================
 ```
+
 i like him very much...
 
 程式人雜誌 2013年1月號 
@@ -298,14 +319,7 @@ Cooper Maa (隨筆)
 
 ## ==============================
 
-
 ## ==============================
-
-
-## ==============================
-
-
-
 
 ## ==============================
 ```
