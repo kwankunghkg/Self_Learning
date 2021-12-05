@@ -45,6 +45,7 @@ FACTOR (From A Concept TO Reality) 2003 summer
 提問力：啟動探究思考的關鍵    作者：藍偉瑩 edu@tw
 ```
   https://activity.books.com.tw/crosscat/show/A00000045055
+  
   https://www.books.com.tw/products/0010909171
 ```  
 教學力：深化素養學習的關鍵    作者：藍偉瑩 edu@tw
