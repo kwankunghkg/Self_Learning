@@ -3,6 +3,8 @@
 
 ============================================================
 
+Vision -> FACTOR (From A Concept TO Reality)
+
 ============================================================
 
 https://youtu.be/T8v9SFSIAgo?t=3669
@@ -41,7 +43,80 @@ https://youtu.be/T8v9SFSIAgo?t=3669
 ============================================================
 
 
+提問力：啟動探究思考的關鍵    作者：藍偉瑩 edu@tw
+https://activity.books.com.tw/crosscat/show/A00000045055
+https://www.books.com.tw/products/0010909171?loc=P_E211118000000026_img_002
+
+藍偉瑩：當你為學生準備未來的同時，也在改變你自己的未來｜親子天下		親子天下 Sep 26, 2017
+https://youtu.be/RaxZkN-ahdk
+12,952 views
+105K subscribers
+
+【臺灣燈塔教育節】藍偉瑩—化教育現場的困難為新的可能性		基隆教主 Streamed live on Sep 11, 2021
+https://youtu.be/KipHD2Q48Ac?t=615
+1,549 views
+944 subscribers
+講者：藍偉瑩｜社團法人瑩光教育協會理事長
+講者簡介：
+擁有國立師範大學科學教育研究所博士學位，著有 《教學力：深化素養學習的關鍵》、《教育，我相信你》。 在超過二十四年的教學資歷中，極度了解學校課程教學與學生學習樣貌，也深度參與課綱相關配套研擬與推動；現在是第一線學校與教師長期且深度的陪伴者，六年來踏遍全臺縣市，陪伴學校解決在師資培育、教師教學、課程設計與社群經營方面的疑難雜症。
+本場論壇簡介：
+當我們以為教育現場有許多困難需要一一突破的時候，我們卻可能誤將問題的結果當成原因在處理，往往事倍功半或是徒勞無功。重新回到教育本質，看清楚教育現場真正的問題，則我們原以為的困難將轉變為機會點，成為孩子面向未來的契機。
+*
+2021 臺灣燈塔教育節——素養導向教育博覽會
+Taiwan Lighthouse Education Festival
+教育節官方網站｜https://lighthouse.kl.edu.tw/ 
+教育節粉絲專頁｜https://www.facebook.com/TaiwanLightEDU/
 
 ============================================================
-last update 2021-12-05_0155
+
+Computer science education is a global challenge - 27th Oct 2021 - Sue Sentance 
+  https://www.raspberrypi.org/blog/brookings-report-global-computer-science-education-policy/
+
+BUILDING SKILLS FOR LIFE - How to expand and improve computer science education around the world 
+  https://www.brookings.edu/essay/building-skills-for-life-how-to-expand-and-improve-computer-science-education-around-the-world/
+
+Introducing Code Club World : a new way for young people to learn to code at home - 9th Nov 2021 - Laura Kirsop
+  https://www.raspberrypi.org/blog/code-club-world-free-online-platform-young-people-children-learn-to-code-at-home/
+Code Club World — a free online platform where young people aged 9 to 13 can learn to make stuff with code.
+
+
+
+【線上初學程式設計 】 《Arduino首次接觸就上手》阿吉老師的5分鐘小教室
+  https://blog.cavedu.com/2021/06/18/grove-beginner-kit-for-arduino-3/
+
+Try Blockly
+  https://developers.google.com/blockly/
+  https://github.com/google/blockly
+  https://en.wikipedia.org/wiki/Blockly
+
+BlocklyDuino 
+is a web-based visual programming editor for Arduino. BlocklyDuino is based on Blockly, the web-based, graphical programming editor. Provide static type language blocks and code generators for Arduino programming.
+  https://github.com/BlocklyDuino/BlocklyDuino
+
+
+Create Graphical User Interfaces with Python / 156-page book / Free PDF / October 2020 
+  https://magpi.raspberrypi.com/books/create-guis
+
+============================================================
+
+
+============================================================
+
+
+============================================================
+
+
+============================================================
+
+
+============================================================
+
+
+============================================================
+
+
+
+
+============================================================
+last update 2021-12-05_0202
 end of file
