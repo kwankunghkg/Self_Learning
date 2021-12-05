@@ -3,7 +3,7 @@
 
 ============================================================
 
-Vision -> FACTOR (From A Concept TO Reality)
+Vision -> FACTOR (From A Concept TO Reality) 2003 summer
 
 ============================================================
 
@@ -112,6 +112,35 @@ Create Graphical User Interfaces with Python / 156-page book / Free PDF / Octobe
 
 ============================================================
 
+i like him very much...
+
+程式人雜誌 2013年1月號 
+陳鍾誠 助理教授@金門大學 
+  https://www.slideshare.net/ccckmit/20131-102408173
+
+google : 陳鍾誠 金門大學
+
+金門/台灣. 現職是金門大學資訊工程系助理教授主要教授《程式設計、計算機結構、系統程式、人工智慧》等課程。
+FaceBook Page
+
+
+
+i like him very much...
+
+this guy is a Taiwan Software Engineer ... who shared all his study ...
+everytime meeting STEM students , would introduce Cooper Maa to them
+
+google : Arduino Cooper Maa
+
+Cooper Maa
+一家烤肉萬家香，開放分享才會快樂
+  http://coopermaa2nd.blogspot.com/
+
+re-visiting his BLOG page (non-technical) ...
+
+Cooper Maa (隨筆)
+我不打發日子，日子天天打發我
+  http://coopermaa.blogspot.com/
 
 ============================================================
 
@@ -131,5 +160,5 @@ Create Graphical User Interfaces with Python / 156-page book / Free PDF / Octobe
 
 
 ============================================================
-last update 2021-12-05_0205
+last update 2021-12-05_0245
 end of file
