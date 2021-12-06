@@ -555,14 +555,44 @@ Web2.0時代終結 「YOLO街」 07/10/2021
 
 物料大革新 「技安的未來世界」 29/04/2021
 ```
-https://youtu.be/5WdPZTF-vJw
+  https://youtu.be/5WdPZTF-vJw
 
 ## ==============================
 ```
 
-
-
+南非omicron 疫情初步數據流出: 人類的命運已注定？
+Omicron preliminary data released: is humanity doomed?
+Dr. Rex 醫學幼稚園 Dec 6, 2021
+10,616 views
+168K subscribers
 ```
+  https://youtu.be/qsK-YSDEVN0
+```
+
+以色列兩醫生打完三針都中招！omincron 會令新藥物失效嗎？
+Will omicron evade new COVID drugs Paxlovid and Molnupiravir?
+Dr. Rex 醫學幼稚園 Dec 2, 2021
+82,966 views
+```
+  https://youtu.be/A4kT8dix2Kw
+```
+
+Omicron 殺到埋身，自救必須知道的幾件事！
+How to survive a potentially disastrous pandemic caused by Omincron?
+Dr. Rex 醫學幼稚園 Nov 30, 2021
+104,644 views
+```
+  https://youtu.be/pj5Nl6hL1CY
+```
+
+好嘅唔靈醜嘅靈: 比Delta病毒更可怕的新變種在非洲橫空出世？
+a potentially disastrous new variant is found in Africa!
+Dr. Rex 醫學幼稚園 Nov 26, 2021
+84,786 views
+更正：世衛今日正式命名病毒為Omicron.
+```
+  https://youtu.be/rV1UGRZ59KA
+
 ## ==============================
 
 
