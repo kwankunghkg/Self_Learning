@@ -3,7 +3,8 @@
 ```
 FACTOR (From A Concept TO Reality) 2003 summer
 ```
-## === 選擇 === ========== 
+## === === ========== 
+### === 選擇 === ========== 
   https://youtu.be/T8v9SFSIAgo?t=3669
 ```  
 61:12	普通年輕人怎麼選擇未來
@@ -171,7 +172,8 @@ How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
 我們特別邀請到李崇建老師，直播解答溝通難題，教你用「好奇心」開啟美好溝通！
 對話需要練習，你準備好了嗎？
 ```
-## === STEM === ========== 
+## === === ========== 
+### === STEM === ========== 
 ```
 STEM/CS - U.S. Department of Education
 ```
@@ -194,7 +196,8 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
   
   https://zh.wikipedia.org/wiki/Haskell
 
-## === Programming === ========== 
+## === === ========== 
+### === Programming === ========== 
 ```
 Computer science education is a global challenge - 27th Oct 2021
 ```
@@ -235,7 +238,8 @@ Create Graphical User Interfaces with Python
 ```
   https://magpi.raspberrypi.com/books/create-guis
 
-## === EE/CS === ========== 
+## === === ========== 
+### === EE/CS === ========== 
 ```
 
 i like him very much...
@@ -278,7 +282,8 @@ Cooper Maa (隨筆)
 ```
   http://coopermaa.blogspot.com/
 
-## === 產業升級 === ========== 
+## === === ========== 
+### === 產業升級 === ========== 
   https://youtu.be/kYdZKrdI4QA?t=3428
 ```
 57:15	人口下降
@@ -300,7 +305,8 @@ Cooper Maa (隨筆)
 58:07	教育不好
 58:08	科技強不了的
 ```
-## === 學業 就業 === ========== 
+## === === ========== 
+### === 學業 就業 === ========== 
 ```
 雙減後孩子怎樣了? 2021-12-04
 ```
@@ -523,7 +529,8 @@ focus & listen
 26:52	這就是我們今天的主題 
   NotePad++ regexp search pattern ([0-9]:[0-9]*)\r\n	replace with	$1\t or \1\t
 ```
-## === 中等收入陷阱 === ========== 
+## === === ========== 
+### === 中等收入陷阱 === ========== 
 ```
 「中等收入陷阱」 Dec 4, 2021
 ```
