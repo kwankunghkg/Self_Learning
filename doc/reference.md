@@ -1,9 +1,9 @@
 # Self_Learning / doc / reference.md
-## === ========== 
+## === === ========== 
 ```
 FACTOR (From A Concept TO Reality) 2003 summer
 ```
-## === ========== 
+## === 選擇 === ========== 
   https://youtu.be/T8v9SFSIAgo?t=3669
 ```  
 61:12	普通年輕人怎麼選擇未來
@@ -43,7 +43,6 @@ FACTOR (From A Concept TO Reality) 2003 summer
 ```
   https://youtu.be/RaxZkN-ahdk
 ```
-
 未來人才與新素養：葉丙成、藍偉瑩、柯沛寧、周德銘 2017親子天下國際教育年會 Sep 27
 ```
 https://youtu.be/zS_DggqPxsc
@@ -53,8 +52,8 @@ https://youtu.be/zS_DggqPxsc
 (2)01:09:14 品格新素養—7個習慣的校園實踐│周德銘
 (2)01:28:49 品格新素養—7個習慣的校園實踐│柯沛寧
 (2)01:42:50 品格新素養—7個習慣的校園實踐│周德銘、柯沛寧、何琦瑜
-
-
+```
+```
 提問力：啟動探究思考的關鍵    作者：藍偉瑩 edu@tw
 ```
   https://activity.books.com.tw/crosscat/show/A00000045055
@@ -73,8 +72,6 @@ https://youtu.be/zS_DggqPxsc
 ```
   https://www.books.com.tw/products/0010833900
 ```
-
-
 【臺灣燈塔教育節】 藍偉瑩 化教育現場的困難為新的可能性 基隆教主 Sep 11, 2021
 ```
   https://youtu.be/KipHD2Q48Ac?t=615
@@ -106,8 +103,6 @@ Taiwan Lighthouse Education Festival
 
   https://www.facebook.com/teacherlaniris/
 ```  
-
-
 幫助每個孩子成功：保羅・塔夫、蘇文鈺、劉安婷
 2017親子天下國際教育年會 Sep 27
 ```
@@ -118,7 +113,8 @@ Taiwan Lighthouse Education Festival
 (3)02:17:00 如何透過教育創新，解決貧富差距│陳雅慧、保羅・塔夫、劉安婷、蘇文鈺
 (4)02:35:00 教育創新一百，打破你對教育的想像│陳雅慧
 🎞整天完整直播收錄在此：http://bit.ly/2xvb0fk
-
+```
+```
 (Paul Tough)《Helping Children Succeed：What works and why》
 Grit（恆毅力）、Perseverance（堅持）、Curiosity（好奇）、
 Optimism（樂觀）、Conscientiousness（自我覺察）、Self-control（自我控制）。
@@ -142,7 +138,6 @@ motivation
 ```
   https://youtu.be/7_WTISE6rW8?t=9064
 ```
-
 孩子如何成功：讓孩子受益一生的新教養方式
 How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
 ```
@@ -151,17 +146,16 @@ How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
 出版社：遠流
 作者：保羅．塔夫 (Paul Tough)
 譯者：王若瓊、李穎琦
-
-
-
+```
+```
 未來人才與新素養：李崇建、溫美玉
 2017親子天下國際教育年會直播回顧 Sep 27
 ```
   https://youtu.be/TSaSHp-P4no
 ```
 教室裡的阿德勒／ＡＩ時代的心素養│溫美玉、李崇建
-
-
+```
+```
 李崇建老師的薩提爾對話練習！用「好奇心」開啟美好溝通
 親子天下 Jul 31, 2018
 ```
@@ -175,8 +169,6 @@ How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
 ● 如何同理、引導學生，進行平和的對話？
 我們特別邀請到李崇建老師，直播解答溝通難題，教你用「好奇心」開啟美好溝通！
 對話需要練習，你準備好了嗎？
-
-
 ```
 ## === STEM === ========== 
 ```
@@ -189,7 +181,6 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
 ```
   https://www.ed.gov/sites/default/files/documents/stem/2020-stem-progress-report.pdf
 ```
-
 唐鳳 @g0v （Audrey Tang，1981年4月18日－）， 是台灣自由軟件程式設計師及政治人物，
 現任行政院政務委員，曾致力於多項專案的開發維護，是Haskell和Perl社群領導者，
 也是g0v零時政府核心成員。
@@ -208,34 +199,27 @@ Computer science education is a global challenge - 27th Oct 2021
 ```
   https://www.raspberrypi.org/blog/brookings-report-global-computer-science-education-policy/
 ```
-
 BUILDING SKILLS FOR LIFE - 
 How to expand and improve computer science education around the world 
 ```
   https://www.brookings.edu/essay/building-skills-for-life-how-to-expand-and-improve-computer-science-education-around-the-world/
 ```
-
 Introducing Code Club World : 
 a new way for young people to learn to code at home - 9th Nov 2021 - Laura Kirsop
 free online platform where young people aged 9 to 13 can learn to make stuff with code.
 ```
   https://www.raspberrypi.org/blog/code-club-world-free-online-platform-young-people-children-learn-to-code-at-home/
 ```
-
-
-
 【線上初學程式設計 】 《Arduino首次接觸就上手》阿吉老師的5分鐘小教室
 ```
   https://blog.cavedu.com/2021/06/18/grove-beginner-kit-for-arduino-3/
 ```
-
 Try Blockly
 ```
   https://developers.google.com/blockly/
   https://github.com/google/blockly
   https://en.wikipedia.org/wiki/Blockly
 ```
-
 BlocklyDuino 
 is a web-based visual programming editor for Arduino. 
 BlocklyDuino is based on Blockly, the web-based, 
@@ -245,7 +229,6 @@ code generators for Arduino programming.
 ```
   https://github.com/BlocklyDuino/BlocklyDuino
 ```
-
 Create Graphical User Interfaces with Python 
 / 156-page / Free PDF / October 2020 
 ```
@@ -265,15 +248,15 @@ google : 陳鍾誠 金門大學
 
 金門/台灣. 現職是金門大學資訊工程系助理教授主要教授《程式設計、計算機結構、系統程式、人工智慧》等課程。
 FaceBook Page
-
-
+```
+```
 
 i like him very much...
 
 葉丙成  實驗教育無界塾、線上學習平台PaGamO創辦人
 FaceBook YouTube
-
-
+```
+```
 
 i like him very much...
 
@@ -295,7 +278,6 @@ Cooper Maa (隨筆)
   http://coopermaa.blogspot.com/
 
 ## === 產業升級 === ========== 
-
   https://youtu.be/kYdZKrdI4QA?t=3428
 ```
 57:15	人口下降
@@ -539,36 +521,29 @@ focus & listen
 26:48	他在就業的時候 面對的問題
 26:52	這就是我們今天的主題 
   NotePad++ regexp search pattern ([0-9]:[0-9]*)\r\n	replace with	$1\t or \1\t
-
 ```
 ## === 中等收入陷阱 === ========== 
 ```
 「中等收入陷阱」 Dec 4, 2021
 ```
   https://youtu.be/Q5bmmgH-SE4
-
-
 ## === Yolo街 === ========== 
 ```
 Yolo街 YouTube
 ```
 https://www.youtube.com/channel/UCZXZcgbA7iajsWdPsAzJ40A/videos
-
 ```
 Omicron 慌 / COVID 口服藥 - Yolo街 2021Dec4 
 ```
   https://youtu.be/gd3HAk6XnsU
 ```
-
 Web2.0時代終結 「YOLO街」 07/10/2021
 ```
   https://youtu.be/kUZWHqJMWOo
 ```
-
 物料大革新 「技安的未來世界」 29/04/2021
 ```
   https://youtu.be/5WdPZTF-vJw
-
 ## === Dr.Rex 醫學幼稚園 === ========== 
 ```
 南非omicron 疫情初步數據流出: 人類的命運已注定？
@@ -579,7 +554,6 @@ Dr. Rex 醫學幼稚園 Dec 6, 2021
 ```
   https://youtu.be/qsK-YSDEVN0
 ```
-
 以色列兩醫生打完三針都中招！omincron 會令新藥物失效嗎？
 Will omicron evade new COVID drugs Paxlovid and Molnupiravir?
 Dr. Rex 醫學幼稚園 Dec 2, 2021
@@ -587,7 +561,6 @@ Dr. Rex 醫學幼稚園 Dec 2, 2021
 ```
   https://youtu.be/A4kT8dix2Kw
 ```
-
 Omicron 殺到埋身，自救必須知道的幾件事！
 How to survive a potentially disastrous pandemic caused by Omincron?
 Dr. Rex 醫學幼稚園 Nov 30, 2021
@@ -595,7 +568,6 @@ Dr. Rex 醫學幼稚園 Nov 30, 2021
 ```
   https://youtu.be/pj5Nl6hL1CY
 ```
-
 好嘅唔靈醜嘅靈: 比Delta病毒更可怕的新變種在非洲橫空出世？
 a potentially disastrous new variant is found in Africa!
 Dr. Rex 醫學幼稚園 Nov 26, 2021
