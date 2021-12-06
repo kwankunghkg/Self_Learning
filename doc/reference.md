@@ -45,6 +45,17 @@ FACTOR (From A Concept TO Reality) 2003 summer
 ```
   https://youtu.be/RaxZkN-ahdk
 ```
+【人文講堂】藍偉瑩 - 信任，是教育的基礎 - 大愛電視 Tzu Chi DaAiVideo Sep 4, 2020
+```
+https://youtu.be/nKbvuUsyWC8
+```
+在超過二十四年的教學資歷中，遇見不同特質的學生、父母與家庭，
+也充分了解學校課程教學與學生學習樣貌，並深度參與課綱相關配套研擬及推動。
+她發現要讓孩子對世界產生好奇，才會有主動探索的興趣，而大人的任務就是信任與陪伴。
+離開教職後，她全心擔任第一線學校與教師的深度陪伴者，期許與學校師生並肩同行，成為更美好的自己。
+※【人文講堂】更多內容：https://goo.gl/TPYuBA
+```
+```
 未來人才與新素養：葉丙成、藍偉瑩、柯沛寧、周德銘 2017親子天下國際教育年會 Sep 27
 ```
 https://youtu.be/zS_DggqPxsc
