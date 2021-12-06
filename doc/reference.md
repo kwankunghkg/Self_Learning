@@ -45,11 +45,11 @@ FACTOR (From A Concept TO Reality) 2003 summer
 ```
   https://youtu.be/RaxZkN-ahdk
 ```
-【人文講堂】藍偉瑩 - 信任，是教育的基礎 - 大愛電視 Tzu Chi DaAiVideo Sep 4, 2020
+藍偉瑩 : 信任，是教育的基礎 【人文講堂】 大愛電視 Tzu Chi DaAiVideo Sep 4, 2020
 ```
 https://youtu.be/nKbvuUsyWC8
 ```
-在超過二十四年的教學資歷中，遇見不同特質的學生、父母與家庭，
+藍偉瑩在超過二十四年的教學資歷中，遇見不同特質的學生、父母與家庭，
 也充分了解學校課程教學與學生學習樣貌，並深度參與課綱相關配套研擬及推動。
 她發現要讓孩子對世界產生好奇，才會有主動探索的興趣，而大人的任務就是信任與陪伴。
 離開教職後，她全心擔任第一線學校與教師的深度陪伴者，期許與學校師生並肩同行，成為更美好的自己。
@@ -271,6 +271,9 @@ i like him very much...
 
 葉丙成  實驗教育無界塾、線上學習平台PaGamO創辦人
 FaceBook YouTube
+
+蘇文鈺 Program the World 
+
 ```
 ```
 
@@ -598,6 +601,11 @@ Dr. Rex 醫學幼稚園 Nov 26, 2021
   https://youtu.be/rV1UGRZ59KA
 
 ## === === ========== 
+```
+GitHub  Markdown file
+```
+https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax
+
 # 1= ========== 
 ## 2== ========== 
 ### 3=== ========== 
@@ -621,5 +629,5 @@ Dr. Rex 醫學幼稚園 Nov 26, 2021
 
 ```
 end of file
-last update 2021-12-06_1355
+last update 2021-12-07_0759
 ```
