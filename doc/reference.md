@@ -37,7 +37,8 @@ FACTOR (From A Concept TO Reality) 2003 summer
 62:17	你才會有未來
 62:18	否則你就不會有未來 
 ```
-## === 未來人才 === ========== 
+## === === ========== 
+### === 未來人才 === ========== 
 ```
 藍偉瑩：當你為學生準備未來的同時，也在改變你自己的未來 親子天下 Sep 26, 2017
 ```
@@ -527,7 +528,8 @@ focus & listen
 「中等收入陷阱」 Dec 4, 2021
 ```
   https://youtu.be/Q5bmmgH-SE4
-## === Yolo街 === ========== 
+## === === ========== 
+### === Yolo街 === ========== 
 ```
 Yolo街 YouTube
 ```
@@ -545,7 +547,7 @@ Web2.0時代終結 「YOLO街」 07/10/2021
 ```
   https://youtu.be/5WdPZTF-vJw
 ## === === ========== 
-## === Dr.Rex 醫學幼稚園 === ========== 
+### === Dr.Rex 醫學幼稚園 === ========== 
 ```
 南非omicron 疫情初步數據流出: 人類的命運已注定？
 Omicron preliminary data released: is humanity doomed?
