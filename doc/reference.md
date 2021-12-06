@@ -1,11 +1,11 @@
 
 # Self_Learning / doc / reference.md
 
-## ==============================
+## === ===========================
 ```
 FACTOR (From A Concept TO Reality) 2003 summer
 ```
-## ==============================
+## === ===========================
 
   https://youtu.be/T8v9SFSIAgo?t=3669
 ```  
@@ -205,7 +205,7 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
   
   https://zh.wikipedia.org/wiki/Haskell
 
-## ==== Programming ==== ======================
+## === Programming ==== ===================
 ```
 Computer science education is a global challenge - 27th Oct 2021
 ```
@@ -254,7 +254,7 @@ Create Graphical User Interfaces with Python
 ```
   https://magpi.raspberrypi.com/books/create-guis
 
-## ==== EE ==========================
+## === EE/CS === =======================
 ```
 
 i like him very much...
@@ -297,7 +297,7 @@ Cooper Maa (隨筆)
 ```
   http://coopermaa.blogspot.com/
 
-## ==== 產業升級 === =======================
+## === 產業升級 === =======================
 
   https://youtu.be/kYdZKrdI4QA?t=3428
 ```
@@ -320,7 +320,7 @@ Cooper Maa (隨筆)
 58:07	教育不好
 58:08	科技強不了的
 ```
-## ==== 學業 就業 === =======================
+## === 學業 就業 === =======================
 ```
 雙減後孩子怎樣了? 2021-12-04
 ```
@@ -544,14 +544,14 @@ focus & listen
   NotePad++ regexp search pattern ([0-9]:[0-9]*)\r\n	replace with	$1\t or \1\t
 
 ```
-## === 中等收入陷阱 ===========================
+## === 中等收入陷阱 === ==================
 ```
 「中等收入陷阱」 Dec 4, 2021
 ```
   https://youtu.be/Q5bmmgH-SE4
 
 
-## ==== Yolo街 ==========================
+## === Yolo街 === =======================
 ```
 Yolo街 YouTube
 ```
@@ -572,7 +572,7 @@ Web2.0時代終結 「YOLO街」 07/10/2021
 ```
   https://youtu.be/5WdPZTF-vJw
 
-## === Dr.Rex 醫學幼稚園 === ========================
+## === Dr.Rex 醫學幼稚園 === =============
 ```
 南非omicron 疫情初步數據流出: 人類的命運已注定？
 Omicron preliminary data released: is humanity doomed?
@@ -624,7 +624,7 @@ Dr. Rex 醫學幼稚園 Nov 26, 2021
 ###### 6====== ========================
 ####### 7======= =======================
 ######## 8======== ====================== 
-[this text](../../text.md)
+[this text](../../reference.md)
 ```
 end of file
 last update 2021-12-06_1355
