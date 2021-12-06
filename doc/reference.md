@@ -1,9 +1,9 @@
 # Self_Learning / doc / reference.md
-## === === ========== 
+## ==================== 
 ```
 FACTOR (From A Concept TO Reality) 2003 summer
 ```
-## === === ========== 
+## ==================== 
 ### === 選擇 === ========== 
   https://youtu.be/T8v9SFSIAgo?t=3669
 ```  
@@ -38,7 +38,7 @@ FACTOR (From A Concept TO Reality) 2003 summer
 62:17	你才會有未來
 62:18	否則你就不會有未來 
 ```
-## === === ========== 
+## ==================== 
 ### === 未來人才 === ========== 
 ```
 藍偉瑩：當你為學生準備未來的同時，也在改變你自己的未來 親子天下 Sep 26, 2017
@@ -172,7 +172,7 @@ How Children Succeed: Grit, Curiosity, and the Hidden Power of Character
 我們特別邀請到李崇建老師，直播解答溝通難題，教你用「好奇心」開啟美好溝通！
 對話需要練習，你準備好了嗎？
 ```
-## === === ========== 
+## ==================== 
 ### === STEM === ========== 
 ```
 STEM/CS - U.S. Department of Education
@@ -196,7 +196,7 @@ Progress Report on the Implementation of the Federal STEM Education Strategic Pl
   
   https://zh.wikipedia.org/wiki/Haskell
 
-## === === ========== 
+## ==================== 
 ### === Programming === ========== 
 ```
 Computer science education is a global challenge - 27th Oct 2021
@@ -238,7 +238,7 @@ Create Graphical User Interfaces with Python
 ```
   https://magpi.raspberrypi.com/books/create-guis
 
-## === === ========== 
+## ==================== 
 ### === EE/CS === ========== 
 ```
 
@@ -282,7 +282,7 @@ Cooper Maa (隨筆)
 ```
   http://coopermaa.blogspot.com/
 
-## === === ========== 
+## ==================== 
 ### === 產業升級 === ========== 
   https://youtu.be/kYdZKrdI4QA?t=3428
 ```
@@ -305,7 +305,7 @@ Cooper Maa (隨筆)
 58:07	教育不好
 58:08	科技強不了的
 ```
-## === === ========== 
+## ==================== 
 ### === 學業 就業 === ========== 
 ```
 雙減後孩子怎樣了? 2021-12-04
@@ -529,13 +529,13 @@ focus & listen
 26:52	這就是我們今天的主題 
   NotePad++ regexp search pattern ([0-9]:[0-9]*)\r\n	replace with	$1\t or \1\t
 ```
-## === === ========== 
+## ==================== 
 ### === 中等收入陷阱 === ========== 
 ```
 「中等收入陷阱」 Dec 4, 2021
 ```
   https://youtu.be/Q5bmmgH-SE4
-## === === ========== 
+## ==================== 
 ### === Yolo街 === ========== 
 ```
 Yolo街 YouTube
@@ -553,7 +553,7 @@ Web2.0時代終結 「YOLO街」 07/10/2021
 物料大革新 「技安的未來世界」 29/04/2021
 ```
   https://youtu.be/5WdPZTF-vJw
-## === === ========== 
+## ==================== 
 ### === Dr.Rex 醫學幼稚園 === ========== 
 ```
 南非omicron 疫情初步數據流出: 人類的命運已注定？
