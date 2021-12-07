@@ -602,7 +602,7 @@ Dr. Rex 醫學幼稚園 Nov 26, 2021
 
 ## === === ========== 
 ```
-GitHub  Markdown file
+GitHub  MarkDown file (.md)
 ```
 https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax
 
