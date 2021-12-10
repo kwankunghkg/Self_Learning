@@ -570,6 +570,12 @@ Web2.0時代終結 「YOLO街」 07/10/2021
 ## ==================== 
 ### === Dr.Rex 醫學幼稚園 === ========== 
 ```
+omicron令抗體中和病毒能力減低40倍; 疫苗會否因而失效? 
+40x reduction of neutralizing antibody seen with omicron
+Dr. Rex 醫學幼稚園 Dec 9, 2021
+```
+https://youtu.be/9pZob03yHxc
+```
 南非omicron 疫情初步數據流出: 人類的命運已注定？
 Omicron preliminary data released: is humanity doomed?
 Dr. Rex 醫學幼稚園 Dec 6, 2021
