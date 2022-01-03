@@ -556,6 +556,10 @@ Yolo街 YouTube
 ```
 https://www.youtube.com/channel/UCZXZcgbA7iajsWdPsAzJ40A/videos
 ```
+以太坊之父 蘇聯小子Vitalik故事 視區塊鏈為對衡 AI的權力集中趨勢 - Yolo 街 Dec 28, 2021
+```
+https://youtu.be/QdDuFPf8v8E
+```
 Omicron 慌 / COVID 口服藥 - Yolo街 2021Dec4 
 ```
   https://youtu.be/gd3HAk6XnsU
