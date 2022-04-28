@@ -68,6 +68,139 @@ henry li
 henry li  
   
   
-========================================  
-last update : 2022-04-28_1341  
-end of file  
+  
+尋找主診醫生 幫緊你醫緊你 NHK Welcome to Our Treatment Room (VI) [Can/Jap] 健康資訊節目  
+外購節目（日本東京電視台），原名《主治医が見つかる診療所（日语：主治医が見つかる診療所）》  
+  https://ja.wikipedia.org/wiki/%E4%B8%BB%E6%B2%BB%E5%8C%BB%E3%81%8C%E8%A6%8B%E3%81%A4%E3%81%8B%E3%82%8B%E8%A8%BA%E7%99%82%E6%89%80  
+  
+[更新EP55] (J2) 《幫緊你醫緊你》- EP01~55 [2022-02-21][HDTV-MP4-720P][粵語配音中字]  
+  http://195.43.95.234:8898/thread-5596253-1-1.html  
+  
+幫緊你醫緊你 2022-02-14 EP55 腦退化 MCI		henry li Feb 15, 2022  
+https://youtu.be/5fE74x4o8wk  
+幫緊你醫緊你 EP55		Me Time  Feb 19, 2022  
+https://youtu.be/azOZQ4xmPpc  
+腦部廢物在腦退化症20年前已經開始積聚！　  
+日本醫生教你2招排走腦部廢物／  
+#預防認知障礙  
+  
+幫緊你醫緊你 2022.2.20 EP56 活腦運動  
+https://youtu.be/z1gg2RpJC3U  
+  
+  
+幫緊你醫緊你 2021.12.19 EP47 燒焦年齡 糖化物質AGE		henry li Dec 20, 2021  
+https://youtu.be/1r1YqQdyIOI  
+1,937 views  
+2.83K subscribers  
+燒焦年齡 糖化物質AGE  
+糖化終產物 Advanced glycation end products  
+  https://en.wikipedia.org/wiki/Advanced_glycation_end-product  
+  
+  
+  
+幫緊你醫緊你 2022.1.16 EP51 膽固醇 CHOLESTEROL LH ratio  低密度膽固醇（LDL-C） 高密度膽固醇（HDL-C）  
+https://youtu.be/pKpeHUltS8A  
+LDL-C range 70-139 mg/dL  
+https://youtu.be/pKpeHUltS8A?t=508  
+  
+不是所有膽固醇數值越低越好 這樣看懂血脂肪檢查報告  
+  https://health.udn.com/health/story/5977/4236086  
+total cholesterol to high-density lipoprotein cholesterol (TC/HDL-C) ratio  
+  
+  
+幫緊你醫緊你 2022.1.23 EP52 中性脂肪 青大膳 EPA DHA  
+https://youtu.be/rgJqF39ThSU  
+  
+幫緊你醫緊你 2022.1.30 EP53   
+https://youtu.be/MuJzKY78SqU  
+  
+  
+沒有了來源～EP54 ( 幫緊你醫緊你)(人手錄影)(鳴謝：討論區義無反顧人手錄影)(鳴謝：討論區提供BT來源 )  
+  
+  
+幫緊你醫緊你 2022.2.27 EP57 immunity / bone-density / Vitamin-D / 木耳		henry li Mar 1, 2022  
+https://youtu.be/7M2ssydyTks  
+2,161 views  
+3.06K subscribers  
+  
+幫緊你醫緊你 EP58 heart attack		henry li Mar 15, 2022  
+https://youtu.be/YcyfgRcw95A  
+378 views  
+3.06K subscribers  
+  
+  
+  
+  
+  
+幫緊你醫緊你_Welcome to Our Treatment Room (IV)[CanJap]_EP14_20210425_203000_082_[粵_日] hip  
+幫緊你醫緊你_EP13_20210418_203000_082_[粵_日].mkv - Shortcut  
+  
+幫緊你醫緊你[粵/日]		尋找主診醫生IV 主治医が見つかる診療所 可以在哪裡找到醫生的診所 Welcome To Our Treatment Room 幫緊你醫緊你  
+	https://ja.wikipedia.org/wiki/%E4%B8%BB%E6%B2%BB%E5%8C%BB%E3%81%8C%E8%A6%8B%E3%81%A4%E3%81%8B%E3%82%8B%E8%A8%BA%E7%99%82%E6%89%80  
+幫緊你醫緊你 尋找主診醫生IV Welcome To Our Treatment Room	主治医が見つかる診療所 playlist   
+	https://www.youtube.com/playlist?list=PLk52L1NCT7L1ZzhfP0qnJgdZ4pnx_fpfd  
+  
+kwankunghkg Channel playlists  
+	https://studio.youtube.com/channel/UCs96ELtyA_chnFRwj-WsMAA/playlists  
+  
+幫緊你醫緊你 EP15  
+幫緊你醫緊你 EP14 臀部運動  
+幫緊你醫緊你 EP13 柔化血管 紅菜頭  
+幫緊你醫緊你 EP12 腸道細菌  
+幫緊你醫緊你 EP11 肚腩  
+幫緊你醫緊你 EP10  
+幫緊你醫緊你 EP09  
+幫緊你醫緊你 EP08  
+幫緊你醫緊你 EP07  
+幫緊你醫緊你 EP06  
+幫緊你醫緊你 EP05  
+幫緊你醫緊你 EP04  
+幫緊你醫緊你 EP03  
+幫緊你醫緊你 EP02  
+幫緊你醫緊你 EP01  
+  
+  
+  
+  
+  
+  
+  
+HKopenTV 健康原因講多D TBS 《健康好吃驚》（日語：駆け込みドクター!運命を変える健康診断，直譯：急診醫生！改變命運的健康檢查）  
+  https://zh.wikipedia.org/wiki/%E5%81%A5%E5%BA%B7%E5%A5%BD%E5%90%83%E9%A9%9A  
+  
+  
+健康原因講多D EP105【咖啡☕🆚綠茶🍵🫖】Coffe or Tea?👀		henry li Mar 8, 2022  
+https://youtu.be/r3CY3wd2z38  
+1,152 views  
+3.06K subscribers  
+  
+  
+  
+  
+《恐怖醫學》（日語：最終警告!たけしの本当は怖い家庭の医学，直譯為《最終警告！武的真實恐怖家庭醫學》，英語：Medical Horror Check Show） 是由日本朝日放送株式會社製作的健康保健電視綜藝節目， 由2004年4月13日至2009年12月15日逢星期二在日本播出。   
+  https://zh.wikipedia.org/wiki/%E6%9C%80%E7%B5%82%E8%AD%A6%E5%91%8A%EF%BC%81%E6%81%90%E6%80%96%E5%AE%B6%E5%BA%AD%E9%86%AB%E5%AD%B8  
+  
+  
+ViuTV 恐怖醫學 EP220【今次先送你令腦部回復年青秘法！】第一招！係你我都熟悉嘅打麻雀？🀅🀅🀅		henry li Mar 1, 2022  
+https://youtu.be/De2yB4qTE_o  
+1,126 views  
+3.06K subscribers  
+  
+ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry li Mar 8, 2022  
+https://youtu.be/tLE6OxXKpiw  
+949 views  
+3.06K subscribers  
+  
+  
+  
+  
+  
+  
+    
+    
+    
+    
+    
+========================================    
+last update : 2022-04-28_1341    
+end of file    
