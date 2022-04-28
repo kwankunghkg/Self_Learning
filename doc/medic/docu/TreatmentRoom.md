@@ -27,47 +27,19 @@ https://www.youtube.com/watch?v=UfcIoLutVo4&list=PLYaZkVb6Xc8viNJbVy-nOQCSe0I54R
 幫緊你醫緊你 EP59 2022.3.20/25 memory loss 健忘 MCI / 黏膜力 秋葵 果膠 乳酸菌 雙歧桿菌  
 幫緊你醫緊你 EP58 2022.3.12/18 heart attack   
 幫緊你醫緊你 EP5x 2022.3.04/11   
-  
 幫緊你醫緊你 EP57 2022.2.25/27   
-henry li  
-  
-42:53  
 幫緊你醫緊你 EP56 2022.2.18/20   
-henry li  
-  
-43:05  
 幫緊你醫緊你 EP55 2022.2.11/13   
-henry li  
-  
 missing 幫緊你醫緊你 EP54 2022.2.04/06   
-  
-42:56  
 幫緊你醫緊你 EP53 2022.1.30   
-henry li  
-  
-44:19  
 幫緊你醫緊你 EP52  
-Donny kam  
-  
-43:53  
 幫緊你醫緊你 EP51 2022.1.14/16   
-henry li  
-  
-42:37  
 幫緊你醫緊你 EP50 2022.1.09   
-henry li  
-  
-42:37  
 幫緊你醫緊你 EP49 2022.01.02   
-henry li  
-  
-44:28  
 幫緊你醫緊你 EP48 2021.12.26   
-henry li  
-  
-43:22  
 幫緊你醫緊你 EP47 2021.12.19   
-henry li  
+  
+  
   
   
   
@@ -206,11 +178,6 @@ https://youtu.be/tLE6OxXKpiw
   
   
   
-    
-    
-    
-    
-    
 ========================================    
-last update : 2022-04-28_1422    
+last update : 2022-04-28_1428    
 end of file    
