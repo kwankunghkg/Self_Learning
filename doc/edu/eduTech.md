@@ -6,7 +6,8 @@ Esperanza 薯片叔叔共創社
 Apr 25 ·  
 【重新出發由人才開始】  
   https://www.facebook.com/esperanza.life/posts/5248767941841097  
-我們已完成有關如何將香港發展為學習創新中心的報告: bit.ly/3xEEDvv 感謝您們的意見，如果您有興趣參與這些建議，請聯絡我們。  
+我們已完成有關如何將香港發展為學習創新中心的報告: http://bit.ly/3xEEDvv 
+感謝您們的意見，如果您有興趣參與這些建議，請聯絡我們。  
 我們需要智慧、社會和財務資本來實現這一願景，  
 期望與有心人士和機構一起開創學習創新之路!  
   
@@ -14,10 +15,13 @@ Esperanza 薯片叔叔共創社
 Apr 20 ·  
 [教育科技催化創新]   
 Catalysing Innovation with Education Technology  
-  bit.ly/3xEEDvv   
+  http://bit.ly/3xEEDvv   
   
   
-教育科技催化創新活動精華 Catalysing Innovation with EdTech Event Highlights (29/03/2022)		Esperanza 薯片叔叔共創社 Apr 14, 2022  
+  
+教育科技催化創新活動精華  
+Catalysing Innovation with EdTech Event Highlights (29/03/2022)		
+Esperanza 薯片叔叔共創社 Apr 14, 2022  
 https://youtu.be/_b7LPYQmRlg  
 46 views  
 66 subscribers  
