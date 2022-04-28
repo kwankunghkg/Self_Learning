@@ -3,7 +3,7 @@ Our Treatment Room (V)_幫緊你醫緊你
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/medic/docu/TreatmentRoom.md    
   
   
-after watching EP63 ... i changed from boiling broccoli 西蘭花 to steaming 蒸(五分鐘電熱水滾+五分鐘蒸) , at the same time steaming a big chicken leg 鷄髀 with extra 5 mins , best result among my poor cooking skill ...  
+after watching EP63 ... changed from boiling broccoli 西蘭花 to steaming 蒸(五分鐘電熱水滾+五分鐘清蒸) , at the same time steaming a big chicken leg 鷄髀 with extra 5 mins , best result among my poor cooking skill ...  
   
 幫緊你醫緊你 EP63 mineral / cooking method / 20220417    
   https://www.youtube.com/watch?v=UfcIoLutVo4&list=PLYaZkVb6Xc8viNJbVy-nOQCSe0I54RsEq&index=1    
