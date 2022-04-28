@@ -1,4 +1,6 @@
   
+Our Treatment Room (V)_幫緊你醫緊你  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/medic/docu/TreatmentRoom.md    
   
   
 after watching EP63 ... i changed from boiling broccoli 西蘭花 to steaming 蒸(五分鐘電熱水滾+五分鐘蒸) , at the same time steaming a big chicken leg 鷄髀 with extra 5 mins , best result among my poor cooking skill ...  
@@ -76,6 +78,9 @@ henry li
 [更新EP55] (J2) 《幫緊你醫緊你》- EP01~55 [2022-02-21][HDTV-MP4-720P][粵語配音中字]  
   http://195.43.95.234:8898/thread-5596253-1-1.html  
   
+  
+  
+  
 幫緊你醫緊你 2022-02-14 EP55 腦退化 MCI		henry li Feb 15, 2022  
 https://youtu.be/5fE74x4o8wk  
 幫緊你醫緊你 EP55		Me Time  Feb 19, 2022  
@@ -83,6 +88,8 @@ https://youtu.be/azOZQ4xmPpc
 腦部廢物在腦退化症20年前已經開始積聚！　  
 日本醫生教你2招排走腦部廢物／  
 #預防認知障礙  
+輕度認知障礙 (Mild Cognitive Impairment, MCI)  
+  https://en.wikipedia.org/wiki/Mild_cognitive_impairment  
   
 幫緊你醫緊你 2022.2.20 EP56 活腦運動  
 https://youtu.be/z1gg2RpJC3U  
@@ -129,7 +136,7 @@ https://youtu.be/YcyfgRcw95A
 3.06K subscribers  
   
   
-  
+  ========================================    
   
   
 幫緊你醫緊你_Welcome to Our Treatment Room (IV)[CanJap]_EP14_20210425_203000_082_[粵_日] hip  
@@ -142,6 +149,8 @@ https://youtu.be/YcyfgRcw95A
   
 kwankunghkg Channel playlists  
 	https://studio.youtube.com/channel/UCs96ELtyA_chnFRwj-WsMAA/playlists  
+  
+  
   
 幫緊你醫緊你 EP15  
 幫緊你醫緊你 EP14 臀部運動  
@@ -163,6 +172,7 @@ kwankunghkg Channel playlists
   
   
   
+  ========================================    
   
   
 HKopenTV 健康原因講多D TBS 《健康好吃驚》（日語：駆け込みドクター!運命を変える健康診断，直譯：急診醫生！改變命運的健康檢查）  
@@ -202,5 +212,5 @@ https://youtu.be/tLE6OxXKpiw
     
     
 ========================================    
-last update : 2022-04-28_1341    
+last update : 2022-04-28_1422    
 end of file    
