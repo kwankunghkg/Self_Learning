@@ -40,7 +40,7 @@ RTHK 零距離科學 辟谷之謎 2015-04-10 Arte (France) Science of Fasting (f
 Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Sciences and Director of the Longevity Institute at the University of Southern California –Leonard Davis School of Gerontology, Los Angeles, one of the leading centers for research on aging and age-related disease. ... also the Director of the Longevity and Cancer Program at the IFOM Institute of Molecular Oncology in Milan, Italy.    
 
 
-逆齡神藥 How to live younger ?   
+逆齡神藥 How to live younger ? documentary (Australian Broadcasting Corporation)  
 1 exercise 強健體魄   
 2 mind 身心愉快   
 3 food 健康飲食 2022/06/21   
@@ -76,5 +76,5 @@ Google : weshare.hk kwankung 牛奶
 Google : weshare.hk kwankung 癌症只是慢性病  
   
 --------------------------------------------------------------  
-last update : 2022-06-23_1150  
+last update : 2022-06-23_1210  
 end of file  
