@@ -69,7 +69,12 @@ Prof. Valter Longo
 Dear Jessica, people affected by pathologies may not do the FMD, unless they have the prior approval of their specialized doctor. In the case of serious or relatively serious illnesses (cancer, diabetes, or cardiovascular, autoimmune, or neurodegenerative diseases), it is important to seek permission and approval from a disease specialist as well as from a dietitian with expertise in the FMD or in therapeutic fasting. So, in this case, an oncologist can recommend any diet to his/her cancer patients as long as the standard therapy is followed and the diet does not constitute a risk for the patient. Kind regards, Team Longo   
 //  
  
-
 --------------------------------------------------------------  
-last update : 2022-06-23_1132  
+  
+Google : weshare.hk kwankung 腸道行為論  
+Google : weshare.hk kwankung 牛奶  
+Google : weshare.hk kwankung 癌症只是慢性病  
+  
+--------------------------------------------------------------  
+last update : 2022-06-23_1150  
 end of file  
