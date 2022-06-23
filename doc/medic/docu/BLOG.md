@@ -48,5 +48,28 @@ Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Scien
   
   
 --------------------------------------------------------------  
-last update : 2022-06-23_1031  
+  
+## ***** Nobel Prize Physiology Medicine 2016 Autophagy (auto:self , phagy:eating)  ***** 
+  
+  
+--------------------------------------------------------------  
+  
+Valter Longo - How Fasting Improves Chemotherapy - from the early mice studies to humans  
+Fast Life Hacks / Feb 21, 2019  
+  https://youtu.be/_lcOj0RYzPY  
+5,464 views / 97 / 1.69K subscribers  
+This is a clip from the "Science of Fasting" documentary, the full documentary of which can be found in the links at the bottom of this description.  
+  
+  
+Prof. Valter Longo 2021-12-16  
+ https://www.facebook.com/profvalterlongo/posts/in-his-books-the-longevity-diet-and-fasting-cancerforthcoming-in-english-profess/3177791505880304/  
+//  
+Author  
+Prof. Valter Longo  
+Dear Jessica, people affected by pathologies may not do the FMD, unless they have the prior approval of their specialized doctor. In the case of serious or relatively serious illnesses (cancer, diabetes, or cardiovascular, autoimmune, or neurodegenerative diseases), it is important to seek permission and approval from a disease specialist as well as from a dietitian with expertise in the FMD or in therapeutic fasting. So, in this case, an oncologist can recommend any diet to his/her cancer patients as long as the standard therapy is followed and the diet does not constitute a risk for the patient. Kind regards, Team Longo   
+//  
+ 
+
+--------------------------------------------------------------  
+last update : 2022-06-23_1132  
 end of file  
