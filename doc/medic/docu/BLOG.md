@@ -55,9 +55,7 @@ Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Scien
 --------------------------------------------------------------  
   
 ### Valter Longo - How Fasting Improves Chemotherapy - from the early mice studies to humans  
-Fast Life Hacks . Feb 21, 2019  
   https://youtu.be/_lcOj0RYzPY  
-5,464 views . 97 . 1.69K subscribers  
 clip from "Science of Fasting" 2015 Arte (France) documentary, full documentary can be found in the links at the bottom of this (YouTube) description.  
   
   
@@ -76,5 +74,5 @@ Google : weshare.hk kwankung 牛奶
 Google : weshare.hk kwankung 癌症只是慢性病  
   
 --------------------------------------------------------------  
-last update : 2022-06-23_1210  
+last update : 2022-06-23_1218  
 end of file  
