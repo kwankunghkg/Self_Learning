@@ -80,14 +80,14 @@ Dear Jessica, people affected by pathologies may not do the FMD, unless they hav
 Prof. Valter Longo · 2022June9  
   https://www.facebook.com/profvalterlongo/posts/3309541976038589  
 Free Webinar, “Fasting & Mimicking Fasting”, “Longevity Series”. June 22nd, 5 pm PST and recording available. Fasting, its benefits, risks, and best practices to incorporate fasting into your lifestyle to improve longevity in a sustainable way. With Create Cures Foundation’s nutritionists Frida Hovik, MS, RDN and Katie Reines MS,RDN  
-//
-Author
-Prof. Valter Longo
-Sigrid Johanne Hovda Hello Sigrid, a recording will be available. Team Valter Longo.
-//
-
-
-Prof. Valter Longo · 2022June9  
+//  
+Author  
+Prof. Valter Longo  
+Sigrid Johanne Hovda Hello Sigrid, a recording will be available. Team Valter Longo.  
+//  
+  
+  
+Prof. Valter Longo · 2022June4  
   https://www.facebook.com/profvalterlongo/posts/3305682256424561  
 “I believe a new approach to oncological therapy is required, in which the oncologist leads a team including doctors specialized in integrative medicine, molecular biologists, nutritionists, and, if possible, psychologists, to offer patients personalized treatments.” Prof. Valter Longo, “Fasting Cancer”. (Forthcoming in English)  
   
