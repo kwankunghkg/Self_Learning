@@ -58,7 +58,7 @@ Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Scien
 Fast Life Hacks . Feb 21, 2019  
   https://youtu.be/_lcOj0RYzPY  
 5,464 views . 97 . 1.69K subscribers  
-clip from the "Science of Fasting" documentary, full documentary can be found in the links at the bottom of this description.  
+clip from the "Science of Fasting" documentary, full documentary can be found in the links at the bottom of this (YouTube) description.  
   
   
 Prof. Valter Longo 2021-12-16  
