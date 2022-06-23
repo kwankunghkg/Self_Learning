@@ -34,18 +34,17 @@ FASTing 48 hours before chemo-therapy...
 RTHK 零距離科學 辟谷之謎 2015-04-10 Arte (France) Science of Fasting (full 55 mins)  
   
   
-## *****  Prof. Valter Longo's new book "Fasting Cancer" *****  
-  The book examines the central role played by fasting mimicking diet and its impact on metabolism to help prevent and treat many types of cancer, even in advanced stages. Despite advances in science, today almost one in two people risk developing cancer.  20 Sept 2021  
-  
-  
-Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Sciences and Director of the Longevity Institute at the University of Southern California –Leonard Davis School of Gerontology, Los Angeles, one of the leading centers for research on aging and age-related disease. ... also the Director of the Longevity and Cancer Program at the IFOM Institute of Molecular Oncology in Milan, Italy.    
-  
-  
 逆齡神藥 How to live younger ? documentary (Australian Broadcasting Corporation)  
 1 exercise 強健體魄   
 2 mind 身心愉快   
 3 food 健康飲食 2022/06/21   
   http://RTHK.hk/tv/dtt31/programme/howtoliveyounger/episode/818171  
+  
+  
+## *****  Prof. Valter Longo's new book "Fasting Cancer" *****  
+  The book examines the central role played by fasting mimicking diet and its impact on metabolism to help prevent and treat many types of cancer, even in advanced stages. Despite advances in science, today almost one in two people risk developing cancer.  20 Sept 2021  
+  
+Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Sciences and Director of the Longevity Institute at the University of Southern California –Leonard Davis School of Gerontology, Los Angeles, one of the leading centers for research on aging and age-related disease. ... also the Director of the Longevity and Cancer Program at the IFOM Institute of Molecular Oncology in Milan, Italy.    
   
   
 --------------------------------------------------------------  
