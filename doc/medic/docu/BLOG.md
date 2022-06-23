@@ -34,7 +34,7 @@ FASTing 48 hours before chemo-therapy...
 RTHK 零距離科學 辟谷之謎 2015-04-10 Arte (France) Science of Fasting (full 55 mins)  
 
 
-Prof. Valter Longo's new book "Fasting Cancer"  
+** Prof. Valter Longo's new book "Fasting Cancer" **  
 
 
 Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Sciences and Director of the Longevity Institute at the University of Southern California –Leonard Davis School of Gerontology, Los Angeles, one of the leading centers for research on aging and age-related disease. ... also the Director of the Longevity and Cancer Program at the IFOM Institute of Molecular Oncology in Milan, Italy.    
