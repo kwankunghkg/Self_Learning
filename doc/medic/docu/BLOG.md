@@ -13,6 +13,7 @@ MUST_WATCH - 腸道行為論
   
   
 --------------------------------------------------------------  
+update : 2022-06-23  
   
   
 accepting revolutionary concept is very challenging , but our science history is so interesting and sometimes incredible , wish more people can prevent from getting sick or injuries :pray::four_leaf_clover:  
@@ -76,5 +77,5 @@ google : weshare.hk kwankung 腸道行為論
 google : weshare.hk kwankung 癌症只是慢性病  
   
 --------------------------------------------------------------  
-last update : 2022-06-23_1218  
+last update : 2022-06-23_1439(UTC+8)  
 end of file  
