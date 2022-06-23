@@ -49,12 +49,12 @@ Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Scien
   
 --------------------------------------------------------------  
   
-## ***** Nobel Prize Physiology Medicine 2016 AutoPhagy (auto:Self , phagy:Eating)  ***** 
+# ***** Nobel Prize Physiology Medicine 2016 AutoPhagy (auto:Self , phagy:Eating)  ***** 
   
   
 --------------------------------------------------------------  
   
-Valter Longo - How Fasting Improves Chemotherapy - from the early mice studies to humans  
+### Valter Longo - How Fasting Improves Chemotherapy - from the early mice studies to humans  
 Fast Life Hacks / Feb 21, 2019  
   https://youtu.be/_lcOj0RYzPY  
 5,464 views / 97 / 1.69K subscribers  
