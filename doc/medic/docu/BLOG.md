@@ -40,6 +40,8 @@ RTHK 零距離科學 辟谷之謎 2015-04-10 Arte (France) Science of Fasting (f
 2 mind 身心愉快   
 3 food 健康飲食 2022/06/21   
   http://RTHK.hk/tv/dtt31/programme/howtoliveyounger/episode/818171  
+食物food=>(72+19+6+2+1)%   
+  https://www.rthk.hk/oldassets/images/rthk/dtt31/howtoliveyounger//originals/mfile_9929_818171_4_l.jpg  
   
   
 --------------------------------------------------------------
