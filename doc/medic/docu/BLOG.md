@@ -42,6 +42,8 @@ RTHK 零距離科學 辟谷之謎 2015-04-10 Arte (France) Science of Fasting (f
   http://RTHK.hk/tv/dtt31/programme/howtoliveyounger/episode/818171  
   
   
+--------------------------------------------------------------
+  
 ## ***** google : Prof. Valter Longo's new book "Fasting Cancer" *****  
   The book examines the central role played by fasting mimicking diet and its impact on metabolism to help prevent and treat many types of cancer, even in advanced stages. Despite advances in science, today almost one in two people risk developing cancer.  20 Sept 2021  
   
@@ -59,8 +61,10 @@ Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Scien
   https://youtu.be/_lcOj0RYzPY  
 clip from "Science of Fasting" 2015 Arte (France) documentary, full documentary can be found in the links at the bottom of this (YouTube) description.  
   
+  
 "Science of Fasting" 2015 Arte (France) documentary (56mins)  
   https://youtu.be/1sBMl4SU8eU  
+  
   
 Prof. Valter Longo 2021-12-16  
  https://www.facebook.com/profvalterlongo/posts/in-his-books-the-longevity-diet-and-fasting-cancerforthcoming-in-english-profess/3177791505880304/  
@@ -69,7 +73,23 @@ Author
 Prof. Valter Longo  
 Dear Jessica, people affected by pathologies may not do the FMD, unless they have the prior approval of their specialized doctor. In the case of serious or relatively serious illnesses (cancer, diabetes, or cardiovascular, autoimmune, or neurodegenerative diseases), it is important to seek permission and approval from a disease specialist as well as from a dietitian with expertise in the FMD or in therapeutic fasting. So, in this case, an oncologist can recommend any diet to his/her cancer patients as long as the standard therapy is followed and the diet does not constitute a risk for the patient. Kind regards, Team Longo   
 //  
- 
+  
+   
+Prof. Valter Longo · 2022June9  
+  https://www.facebook.com/profvalterlongo/posts/3309541976038589  
+Free Webinar, “Fasting & Mimicking Fasting”, “Longevity Series”. June 22nd, 5 pm PST and recording available. Fasting, its benefits, risks, and best practices to incorporate fasting into your lifestyle to improve longevity in a sustainable way. With Create Cures Foundation’s nutritionists Frida Hovik, MS, RDN and Katie Reines MS,RDN  
+//
+Author
+Prof. Valter Longo
+Sigrid Johanne Hovda Hello Sigrid, a recording will be available. Team Valter Longo.
+//
+
+
+Prof. Valter Longo · 2022June9  
+  https://www.facebook.com/profvalterlongo/posts/3305682256424561  
+“I believe a new approach to oncological therapy is required, in which the oncologist leads a team including doctors specialized in integrative medicine, molecular biologists, nutritionists, and, if possible, psychologists, to offer patients personalized treatments.” Prof. Valter Longo, “Fasting Cancer”. (Forthcoming in English)  
+  
+  
 --------------------------------------------------------------  
   
 google : weshare.hk kwankung 牛奶  
@@ -77,5 +97,5 @@ google : weshare.hk kwankung 腸道行為論
 google : weshare.hk kwankung 癌症只是慢性病  
   
 --------------------------------------------------------------  
-last update : 2022-06-23_1439(UTC+8)  
+last update : 2022-06-23_1459(UTC+8)  
 end of file  
