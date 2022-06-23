@@ -71,9 +71,9 @@ Dear Jessica, people affected by pathologies may not do the FMD, unless they hav
  
 --------------------------------------------------------------  
   
-Google : weshare.hk kwankung 腸道行為論  
-Google : weshare.hk kwankung 牛奶  
-Google : weshare.hk kwankung 癌症只是慢性病  
+google : weshare.hk kwankung 牛奶  
+google : weshare.hk kwankung 腸道行為論  
+google : weshare.hk kwankung 癌症只是慢性病  
   
 --------------------------------------------------------------  
 last update : 2022-06-23_1218  
