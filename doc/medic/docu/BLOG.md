@@ -99,6 +99,38 @@ google : weshare.hk kwankung 腸道行為論
 google : weshare.hk kwankung 癌症只是慢性病  
 google : weshare.hk kwankung starving cancer
   
+
+-----------------------------------------------------------  
+update : 2022-06-24  
+  
+再生醫學_20200221_
+  https://www.dailymotion.com/video/x7s3gxk  
+  
+  
+-----------------------------------------------------------  
+  
+不是香港人 3 在西方遇上東方 羅曼茵 (薩拉熱窩) 2006-07-30 20161220  
+  https://www.dailymotion.com/video/x57odpj  
+3 07/30/2006 在西方遇上東方 編導：鄺翠娟 監製：蔡貞停 羅曼茵（Tansy）一個出身自中醫世家的香港人，嫁了德國外交官Frank後，先後隨夫旅居北京、東京、柏林等地十年間，順道行醫，眾多病人，豐富了她的診症經驗，而Tansy對中醫學虛懷若谷的態度，也讓她能對各地的中醫技術兼收並蓄。巴爾幹半島是歐洲大藥庫，波斯尼亞首都薩拉熱窩、1992至95更經歷了三年內戰和殘酷的種族屠殺。 隨著塞爾維亞和波斯尼亞的停火，由歐盟聯合國共同監管，一年前Tansy隨丈夫進駐來到薩拉熱窩，物離鄉貴，中醫理念被受接納，Tansy在這裏行醫，短短一年，病人有二、三百之多，不同種族、語言的人，身體得到醫治之外，Tansy更透過各種中醫的方法，醫治這裏被戰火創傷的心靈。 #中醫 #針灸  
+  
+  
+-----------------------------------------------------------  
+  
+5 must watch documentaries  
+1. BBC 2012 Eat , Fast and Live Longer  
+2. Arte 2011 Science of Fasting  
+3. Arte 2013 Les Secrets de longévité  
+4. Arte 2016 Cancer the New Trailblazers  
+5. NHK 2017 Glucose Spikes  
+  
+血糖颷升 NHK 2017 Glucose Spike  
+  http://www.dailymotion.com/video/x5v80jc  
+零距離科學3 血糖危機解密 NHK Medical Revolution Glucose Spike 20170728  
+  
+Calorie Restricted Treatment - Science of Fasting & Autophagy - Cancer / Diabetes / Dementia / Aging  
+  https://www.weshare.hk/kwankung/articles/4638032  
+  
+  
 --------------------------------------------------------------  
-last update : 2022-06-23_1506(UTC+8)  
+last update : 2022-06-24_1202(UTC+8)  
 end of file  
