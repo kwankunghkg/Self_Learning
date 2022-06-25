@@ -67,7 +67,7 @@ Dr. Valter Longo ... Edna M. Jones Professor of Gerontology and Biological Scien
 clip from "Science of Fasting" 2011 Arte (France) documentary, full documentary can be found in the links at the bottom of this (YouTube) description.  
   
   
-"Science of Fasting" 2011 Arte (France) documentary (56mins)  
+"Science of Fasting" 2011 Arte (France) documentary (full 56mins with subtitles)  
   https://youtu.be/1sBMl4SU8eU  
   
   
