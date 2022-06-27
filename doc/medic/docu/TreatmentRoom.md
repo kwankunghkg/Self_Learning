@@ -5,8 +5,10 @@
   
 仁醫 原聲帶 JIN 仁  
   https://youtu.be/WzvJnUB7F8I  
+JIN‐仁  サウンドトラック OST 「Main Title」︳ 一時間耐久 1 Hour 【作業、勉強、睡眠用BGM】  
+  https://youtu.be/OLYAk_dwFQE  
   
-Links : 日劇 美麗人生 GTO 龍櫻  
+#### Links : 日劇 美麗人生 GTO 龍櫻  
   https://youtu.be/wSfkW9VcEyc  
   
 -----------------------------------------------------------  
