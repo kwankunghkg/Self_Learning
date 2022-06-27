@@ -3,6 +3,9 @@
 ## MUST_WATCH : 日劇 JIN 仁醫 (2009+2011)  
   https://youtu.be/V-cwt97Q7hM  
   
+仁醫 原聲帶 JIN 仁  
+  https://youtu.be/WzvJnUB7F8I  
+  
 Links : 日劇 美麗人生 GTO 龍櫻  
   https://youtu.be/wSfkW9VcEyc  
   
