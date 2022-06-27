@@ -1,3 +1,11 @@
+-----------------------------------------------------------  
+  
+MUST_WATCH : 日劇 JIN 仁醫 (1+2)  
+  https://youtu.be/V-cwt97Q7hM  
+  
+-----------------------------------------------------------  
+  
+  
   
 Our Treatment Room (V)_幫緊你醫緊你  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/medic/docu/TreatmentRoom.md    
@@ -17,7 +25,7 @@ Welcome to Our Treatment Room (V)_幫緊你醫緊你_[CanJap]_220327_200000_082_
 20220410_193000_082_幫緊你醫緊你[粵_日]	幫緊你醫緊你 EP62  
 SUN 8pm	FRI 7am  
   
-https://www.youtube.com/watch?v=UfcIoLutVo4&list=PLYaZkVb6Xc8viNJbVy-nOQCSe0I54RsEq&index=1  
+  https://www.youtube.com/watch?v=UfcIoLutVo4&list=PLYaZkVb6Xc8viNJbVy-nOQCSe0I54RsEq&index=1  
   
 幫緊你醫緊你 EP63 mineral / cooking method / 20220417_193000  
 幫緊你醫緊你 EP62 allergy / 蜱 牛肉 alpha-gal 血型 / kissing disease Epstein–Barr virus (EBV)  / 視網膜剝離  
@@ -54,9 +62,9 @@ missing 幫緊你醫緊你 EP54 2022.2.04/06
   
   
 幫緊你醫緊你 2022-02-14 EP55 腦退化 MCI		henry li Feb 15, 2022  
-https://youtu.be/5fE74x4o8wk  
+  https://youtu.be/5fE74x4o8wk  
 幫緊你醫緊你 EP55		Me Time  Feb 19, 2022  
-https://youtu.be/azOZQ4xmPpc  
+  https://youtu.be/azOZQ4xmPpc  
 腦部廢物在腦退化症20年前已經開始積聚！　  
 日本醫生教你2招排走腦部廢物／  
 #預防認知障礙  
@@ -64,11 +72,11 @@ https://youtu.be/azOZQ4xmPpc
   https://en.wikipedia.org/wiki/Mild_cognitive_impairment  
   
 幫緊你醫緊你 2022.2.20 EP56 活腦運動  
-https://youtu.be/z1gg2RpJC3U  
+  https://youtu.be/z1gg2RpJC3U  
   
   
 幫緊你醫緊你 2021.12.19 EP47 燒焦年齡 糖化物質AGE		henry li Dec 20, 2021  
-https://youtu.be/1r1YqQdyIOI  
+  https://youtu.be/1r1YqQdyIOI  
 1,937 views  
 2.83K subscribers  
 燒焦年齡 糖化物質AGE  
@@ -78,32 +86,32 @@ https://youtu.be/1r1YqQdyIOI
   
   
 幫緊你醫緊你 2022.1.16 EP51 膽固醇 CHOLESTEROL LH ratio  低密度膽固醇（LDL-C） 高密度膽固醇（HDL-C）  
-https://youtu.be/pKpeHUltS8A  
+  https://youtu.be/pKpeHUltS8A  
 LDL-C range 70-139 mg/dL  
-https://youtu.be/pKpeHUltS8A?t=508  
-  
+  https://youtu.be/pKpeHUltS8A?t=508  
+   
 不是所有膽固醇數值越低越好 這樣看懂血脂肪檢查報告  
   https://health.udn.com/health/story/5977/4236086  
 total cholesterol to high-density lipoprotein cholesterol (TC/HDL-C) ratio  
   
   
 幫緊你醫緊你 2022.1.23 EP52 中性脂肪 青大膳 EPA DHA  
-https://youtu.be/rgJqF39ThSU  
+  https://youtu.be/rgJqF39ThSU  
   
 幫緊你醫緊你 2022.1.30 EP53   
-https://youtu.be/MuJzKY78SqU  
+  https://youtu.be/MuJzKY78SqU  
   
   
 沒有了來源～EP54 ( 幫緊你醫緊你)(人手錄影)(鳴謝：討論區義無反顧人手錄影)(鳴謝：討論區提供BT來源 )  
   
   
 幫緊你醫緊你 2022.2.27 EP57 immunity / bone-density / Vitamin-D / 木耳		henry li Mar 1, 2022  
-https://youtu.be/7M2ssydyTks  
+  https://youtu.be/7M2ssydyTks  
 2,161 views  
 3.06K subscribers  
   
 幫緊你醫緊你 EP58 heart attack		henry li Mar 15, 2022  
-https://youtu.be/YcyfgRcw95A  
+  https://youtu.be/YcyfgRcw95A  
 378 views  
 3.06K subscribers  
   
@@ -152,7 +160,7 @@ HKopenTV 健康原因講多D TBS 《健康好吃驚》（日語：駆け込み�
   
   
 健康原因講多D EP105【咖啡☕🆚綠茶🍵🫖】Coffe or Tea?👀		henry li Mar 8, 2022  
-https://youtu.be/r3CY3wd2z38  
+  https://youtu.be/r3CY3wd2z38  
 1,152 views  
 3.06K subscribers  
   
@@ -164,12 +172,12 @@ https://youtu.be/r3CY3wd2z38
   
   
 ViuTV 恐怖醫學 EP220【今次先送你令腦部回復年青秘法！】第一招！係你我都熟悉嘅打麻雀？🀅🀅🀅		henry li Mar 1, 2022  
-https://youtu.be/De2yB4qTE_o  
+  https://youtu.be/De2yB4qTE_o  
 1,126 views  
 3.06K subscribers  
   
 ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry li Mar 8, 2022  
-https://youtu.be/tLE6OxXKpiw  
+  https://youtu.be/tLE6OxXKpiw   
 949 views  
 3.06K subscribers  
   
