@@ -3,6 +3,9 @@
 MUST_WATCH : 日劇 JIN 仁醫 (1+2)  
   https://youtu.be/V-cwt97Q7hM  
   
+Links : 日劇 美麗人生 GTO 龍櫻  
+  https://youtu.be/wSfkW9VcEyc  
+  
 -----------------------------------------------------------  
   
   
