@@ -54,8 +54,7 @@ missing 幫緊你醫緊你 EP54 2022.2.04/06
   
   
   
-尋找主診醫生 幫緊你醫緊你 NHK Welcome to Our Treatment Room (VI) [Can/Jap] 健康資訊節目  
-外購節目（日本東京電視台），原名《主治医が見つかる診療所（日语：主治医が見つかる診療所）》  
+## 尋找主診醫生 幫緊你醫緊你 NHK Welcome to Our Treatment Room (VI) [Can/Jap] 健康資訊節目  外購節目（日本東京電視台），原名《主治医が見つかる診療所（日语：主治医が見つかる診療所）》  
   https://ja.wikipedia.org/wiki/%E4%B8%BB%E6%B2%BB%E5%8C%BB%E3%81%8C%E8%A6%8B%E3%81%A4%E3%81%8B%E3%82%8B%E8%A8%BA%E7%99%82%E6%89%80  
   
 [更新EP55] (J2) 《幫緊你醫緊你》- EP01~55 [2022-02-21][HDTV-MP4-720P][粵語配音中字]  
