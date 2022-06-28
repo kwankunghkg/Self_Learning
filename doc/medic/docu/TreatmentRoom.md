@@ -230,7 +230,7 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
 #### 環環相扣 connected ...  
 immunity.cancer.NKcell.Lymph.QiGong腹息提肛.microCirculation  
 ep45 提升冬天免疫力   
-  viu.tv/encore/takeshis-medical-check-up-show  
+  http://viu.tv/encore/takeshis-medical-check-up-show  
 312經絡鍛鍊法  
   https://youtu.be/VYvhcsFQYD8  
 Lymphatic system  
