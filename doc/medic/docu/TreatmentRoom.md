@@ -176,9 +176,12 @@ HKopenTV 健康原因講多D TBS 《健康好吃驚》（日語：駆け込み�
   
 -----------------------------------------------------------  
   
+### 恐怖醫學（日語：たけしの健康エンターテインメント!みんなの家庭の医学、英語：Takeshi's Medical Check-Up Show） 是由日本朝日放送製作的綜藝節目。 主演:北野武(Takeshi)
+  https://zh.wikipedia.org/zh-hk/%E6%81%90%E6%80%96%E9%86%AB%E5%AD%B8_(2010%E5%B9%B4)
+  
 ### 《恐怖醫學》（日語：最終警告!たけしの本当は怖い家庭の医学，直譯為《最終警告！武的真實恐怖家庭醫學》，英語：Medical Horror Check Show） 是由日本朝日放送株式會社製作的健康保健電視綜藝節目， 由2004年4月13日至2009年12月15日逢星期二在日本播出。   
   https://zh.wikipedia.org/wiki/%E6%9C%80%E7%B5%82%E8%AD%A6%E5%91%8A%EF%BC%81%E6%81%90%E6%80%96%E5%AE%B6%E5%BA%AD%E9%86%AB%E5%AD%B8  
-  
+    
   
 ViuTV 恐怖醫學 EP220【今次先送你令腦部回復年青秘法！】第一招！係你我都熟悉嘅打麻雀？🀅🀅🀅		henry li Mar 1, 2022  
   https://youtu.be/De2yB4qTE_o  
@@ -191,13 +194,13 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
 3.06K subscribers  
   
   
-恐佈醫學 2017-09-03 免疫力 激活淋巴乳糜槽 熱水浸浴  
+
+### 恐佈醫學 2017-09-03 免疫力 ***激活淋巴乳糜槽*** 熱水浸浴  
   https://youtu.be/pW43H2hN-vI  
 恐怖醫學 (Takeshi's Health Network TV show) NK細胞  
   http://hohealthyinfo.blogspot.com/2017/09/blog-post.html  
   http://hohealthyinfo.blogspot.com/2017/09/  
-恐佈醫學 (Viu TV 2017/09/03) 免疫系統  
-2017/9/3 (99台)，免疫系統  
+恐佈醫學 (ViuTV 99台 2017/09/03) 免疫系統  
 增强免疫系統兩種方法  
 第一種方法  
   第一種方法是激活淋巴內的 NK細胞 (natural killer cells) 。 NK細胞能直接殺死細菌及癌細胞。免疫力下降其中一個原因是因為 NK細胞 在淋巴系統內處休眠身狀態。  
