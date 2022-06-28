@@ -205,7 +205,7 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
   https://www.facebook.com/watch/?v=1863328840589195  
 ViuTV 恐怖醫學 第45集 ep45 (full + 2017 ep25-ep45）  
   https://www.bilibili.com/video/BV1Ux411x7Pm?p=18  
-  (sorry wrong link) https://www.bilibili.com/video/BV1EN41197Qt/  
+  (sorry wrong link not ep213) https://www.bilibili.com/video/BV1EN41197Qt/  
 恐怖醫學 (Takeshi's Health Network TV show) NK細胞  
   http://hohealthyinfo.blogspot.com/2017/09/blog-post.html  
   http://hohealthyinfo.blogspot.com/2017/09/  
@@ -252,7 +252,7 @@ let me find the japanese medic documentary about 乳糜槽 and its relationship 
   
   
   
-恐怖醫學 第213集 immunity / body clock  
+恐怖醫學 第213集 ep213 immunity / body clock  
   https://www.bilibili.com/video/BV1EN41197Qt/  
   
   
