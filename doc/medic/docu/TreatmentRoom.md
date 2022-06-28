@@ -201,9 +201,9 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
   
 ### 恐佈醫學 2017-09-03 immunity / NKcell / Cysterna Chyli / Hot Bath / 免疫力 NK細胞 ***激活淋巴乳糜槽*** 熱水浸浴  
   (broken link)  https://youtu.be/pW43H2hN-vI  
-### 恐怖醫學 第45集 (2017-09-03) 提升免疫力的方法 (work link 2022-6-28) 
+### 恐怖醫學 第45集 (2017-09-03) 提升免疫力的方法 (work link 2022-6-28_1126(UTC+8)) 
   https://www.facebook.com/watch/?v=1863328840589195  
-ViuTV 恐怖醫學 ep45 （2017 ep25-ep45）  
+ViuTV 恐怖醫學 第45集 ep45 (full + 2017 ep25-ep45）  
   https://www.bilibili.com/video/BV1Ux411x7Pm?p=18  
   (sorry wrong link) https://www.bilibili.com/video/BV1EN41197Qt/  
 恐怖醫學 (Takeshi's Health Network TV show) NK細胞  
