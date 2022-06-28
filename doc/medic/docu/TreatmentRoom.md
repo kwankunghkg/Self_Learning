@@ -24,16 +24,15 @@ after watching EP63 ... changed from boiling broccoli 西蘭花 to steaming 蒸(
 幫緊你醫緊你 EP63 mineral / cooking method / 20220417    
   https://www.youtube.com/watch?v=UfcIoLutVo4&list=PLYaZkVb6Xc8viNJbVy-nOQCSe0I54RsEq&index=1    
   
+  
 would compose a summary list for this documentary series  
   
-  
-  
-Welcome to Our Treatment Room (V)_幫緊你醫緊你_[CanJap]_220327_200000_082_粵日  
-20220312_203001_082_幫緊你醫緊你[粵_日]  
-20220410_193000_082_幫緊你醫緊你[粵_日]	幫緊你醫緊你 EP62  
 SUN 8pm	+ FRI 7am  
+Welcome to Our Treatment Room (V)_幫緊你醫緊你_[CanJap]_20220327_200000_082_粵日  
+20220312_203001_082_幫緊你醫緊你[粵_日]  
+20220410_193000_082_幫緊你醫緊你[粵_日]	EP62  
   
-幫緊你醫緊你 全輯  
+### 幫緊你醫緊你 全輯  
   https://www.youtube.com/playlist?list=PLYaZkVb6Xc8viNJbVy-nOQCSe0I54RsEq  
   
 幫緊你醫緊你 EP63 mineral / cooking method / 20220417_193000  
