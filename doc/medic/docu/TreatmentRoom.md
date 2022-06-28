@@ -28,7 +28,7 @@ after watching EP63 ... changed from boiling broccoli 西蘭花 to steaming 蒸(
 would compose a summary list for this documentary series  
   
 SUN 8pm	+ FRI 7am  
-Welcome to Our Treatment Room (V)_幫緊你醫緊你_[CanJap]_20220327_200000_082_粵日  
+Welcome to Our Treatment Room (V) 幫緊你醫緊你 [CanJap] 20220327_200000_082_粵日  
 20220312_203001_082_幫緊你醫緊你[粵_日]  
 20220410_193000_082_幫緊你醫緊你[粵_日]	EP62  
   
