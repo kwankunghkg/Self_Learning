@@ -1,5 +1,5 @@
   
-last update : 2022-06-28_1111(UTC+8)  
+last update : 2022-06-28_1126(UTC+8)  
   
 -----------------------------------------------------------  
   
@@ -201,8 +201,10 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
   
 ### 恐佈醫學 2017-09-03 immunity / NKcell / Cysterna Chyli / Hot Bath / 免疫力 NK細胞 ***激活淋巴乳糜槽*** 熱水浸浴  
   (broken link)  https://youtu.be/pW43H2hN-vI  
-### 恐怖醫學 第213集 (2017-09-03) 提升免疫力的方法 (work link 2022-6-28) 
+### 恐怖醫學 第45集 (2017-09-03) 提升免疫力的方法 (work link 2022-6-28) 
   https://www.facebook.com/watch/?v=1863328840589195  
+ViuTV 恐怖醫學 ep45 （2017 ep25-ep45）  
+  https://www.bilibili.com/video/BV1Ux411x7Pm?p=18  
   (sorry wrong link) https://www.bilibili.com/video/BV1EN41197Qt/  
 恐怖醫學 (Takeshi's Health Network TV show) NK細胞  
   http://hohealthyinfo.blogspot.com/2017/09/blog-post.html  
@@ -249,6 +251,11 @@ let me find the japanese medic documentary about 乳糜槽 and its relationship 
 基本原則，午飯後兩小時，胃部消化油份大致完成，油份集中於乳糜槽(小腹)，乳糜槽集中大量免疫結點(node)及免疫細胞，但較具惰性，需主動帶動免疫細胞離開乳糜槽並運行全身。午飯後二小時，平躺仰臥，以小腹(橫隔膜)慢速深呼吸十五至二十分鐘。 慢(一分鐘六次)呼吸，午睡，養身心  
   
   
+  
+恐怖醫學 第213集 immunity / body clock  
+  https://www.bilibili.com/video/BV1EN41197Qt/  
+  
+  
 -----------------------------------------------------------  
   
 google : weshare.hk kwankung 恐怖醫學
@@ -259,5 +266,15 @@ google : weshare.hk kwankung 恐怖醫學
   
 ========================================    
 update : 2022-04-28_1428    
+  
+  
+-----------------------------------------------------------  
+  
+上士聞道 勤而行之  
+  https://blog.xuite.net/chun.hung693/twblog/155961214  
+  
+取法乎上 僅得其中  
+  https://www.easyatm.com.tw/wiki/%E5%8F%96%E6%B3%95%E4%B9%8E%E4%B8%8A  
+  
 -----------------------------------------------------------  
 end of file    
