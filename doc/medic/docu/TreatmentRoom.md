@@ -1,5 +1,5 @@
   
-last update : 2022-06-28_0903    
+last update : 2022-06-28_0918    
   
 -----------------------------------------------------------  
   
@@ -218,6 +218,16 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
   第二種提升免疫系統方法就是熱水浸浴。  
   深層體温比正常體温高約一度，可以增加免疫細胞活動能力。  
   用41度水温浸15分中，頭部最好出微汗。  
+  
+  
+  
+  https://www.weshare.hk/kwankung/articles/4623390
+[1:30 PM, 9/10/2017] : 
+環環相扣 connected ...
+immunity.cancer.NKcell.Lymph.QiGong腹息提肛.microCirculation
+ep45 提升冬天免疫力 
+  https://youtu.be/pI5zTjGgpGA
+  http://viu.tv/encore/takeshis-medical-check-up-show  
   
   
   
