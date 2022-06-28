@@ -1,5 +1,5 @@
   
-last update : 2022-06-28_0918    
+last update : 2022-06-28_0934(UTC+8)  
   
 -----------------------------------------------------------  
   
@@ -223,10 +223,16 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
   
   https://www.weshare.hk/kwankung/articles/4623390  
 [1:30 PM, 9/10/2017] :   
-### 環環相扣 connected ...  
+#### 環環相扣 connected ...  
 immunity.cancer.NKcell.Lymph.QiGong腹息提肛.microCirculation  
 ep45 提升冬天免疫力   
   viu.tv/encore/takeshis-medical-check-up-show  
+  
+[JUNE/2022] : 乳糜槽 cysterna chyli  
+小學時音樂老師教用小腹(丹田)運氣發音  
+let me find the japanese medic documentary about 乳糜槽 and its relationship with immunity & 丹田 ...  
+恐佈醫學 2017-09-03 免疫力 激活淋巴乳糜槽 熱水浸浴 NK細胞 pW43H2hN-vI.mp4  
+基本原則，午飯後兩小時，胃部消化油份大致完成，油份集中於乳糜槽(小腹)，乳糜槽集中大量免疫結點(node)及免疫細胞，但較具惰性，需主動帶動免疫細胞離開乳糜槽並運行全身。午飯後二小時，平躺仰臥，以小腹(橫隔膜)慢速深呼吸十五至二十分鐘。 慢(一分鐘六次)呼吸，午睡，養身心  
   
   
   
