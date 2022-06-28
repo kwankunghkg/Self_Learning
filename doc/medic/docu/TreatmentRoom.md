@@ -200,7 +200,7 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
 
 ### 恐佈醫學 2017-09-03 免疫力 NK細胞 ***激活淋巴乳糜槽*** 熱水浸浴  
   (broken link)  https://youtu.be/pW43H2hN-vI  
-恐怖醫學 第213集 (2017-09-03) 提升免疫力的方法  
+### 恐怖醫學 第213集 (2017-09-03) 提升免疫力的方法 (work link 2022-6-28) 
   https://www.bilibili.com/video/BV1EN41197Qt/  
 恐怖醫學 (Takeshi's Health Network TV show) NK細胞  
   http://hohealthyinfo.blogspot.com/2017/09/blog-post.html  
