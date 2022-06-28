@@ -1,5 +1,5 @@
   
-last update : 2022-06-28_0941(UTC+8)  
+last update : 2022-06-28_1022(UTC+8)  
   
 -----------------------------------------------------------  
   
@@ -228,6 +228,18 @@ ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry 
 immunity.cancer.NKcell.Lymph.QiGong腹息提肛.microCirculation  
 ep45 提升冬天免疫力   
   viu.tv/encore/takeshis-medical-check-up-show  
+312經絡鍛鍊法  
+  https://youtu.be/VYvhcsFQYD8  
+Lymphatic system  
+  https://goo.gl/LWbcf1  
+  https://en.wikipedia.org/wiki/Lymphatic_system  
+平甩功 許達夫 癌症  
+  https://youtu.be/RHTUoQep-vw  
+梅門平甩功  
+  https://youtu.be/8YJmiTlTnpU  
+道家氣功 提肛  
+  https://youtu.be/5l4aMApTab8?t=3m50s  
+   
   
 [JUNE/2022] : 乳糜槽 cysterna chyli  
 小學時音樂老師教用小腹(丹田)運氣發音  
