@@ -1,5 +1,5 @@
   
-last update : 2022-06-28_1126(UTC+8)  
+last update : 2022-06-29_1038(UTC+8)  
   
 -----------------------------------------------------------  
   
@@ -254,6 +254,18 @@ let me find the japanese medic documentary about 乳糜槽 and its relationship 
   
 恐怖醫學 第213集 ep213 immunity / body clock  
   https://www.bilibili.com/video/BV1EN41197Qt/  
+  
+-----------------------------------------------------------  
+update 2022-6-29  
+  
+恐怖醫學 第235集 保持青春的緊急特別篇 / ageing ear / ageing eye surgery  
+  https://youtu.be/zdMyiUQ4peY  
+恐怖醫學 第236集 不用開刀便可治療的手術法 / 子宮瘤 / 痔瘡 / 下肢靜脈瘤 / 食道癌  
+  https://youtu.be/55QFxYfZofI  
+  
+恐怖醫學 第三輯 第220集~today 2022年2月27日  
+25 videos 1,722 views Updated today / henry li  
+  https://www.youtube.com/playlist?list=PL3uMgj40a97bxf5x4TIdjAMKu0OibrF71  
   
   
 -----------------------------------------------------------  
