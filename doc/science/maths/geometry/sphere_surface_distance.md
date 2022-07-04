@@ -1,4 +1,4 @@
-### distance on sphere  
+### distance on sphere surface  
   
 ---------------------------------------------  
   
