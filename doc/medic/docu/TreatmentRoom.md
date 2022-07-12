@@ -357,5 +357,8 @@ Tag: Live well for longer,健康啲‧長命啲,Morland Sanders,生物駭客,Str
 取法乎上 僅得其中  
   https://www.easyatm.com.tw/wiki/%E5%8F%96%E6%B3%95%E4%B9%8E%E4%B8%8A  
   
+BLOG.md  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/medic/docu/BLOG.md  
+  
 -----------------------------------------------------------  
 end of file    
