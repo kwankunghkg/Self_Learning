@@ -1,5 +1,5 @@
   
-last update : 2022-06-29_1038(UTC+8)  
+last update : 2022-07-13_0234(UTC+8)  
   
 -----------------------------------------------------------  
   
@@ -278,6 +278,81 @@ google : weshare.hk kwankung 恐怖醫學
   
 ========================================    
 update : 2022-04-28_1428    
+  
+  
+  
+-----------------------------------------------------------  
+  
+update : 2022-07-13_0234    
+  
+  
+Prof. Valter Longo  2022-07-09   · 
+  https://www.facebook.com/profvalterlongo/posts/3332846060374847  
+“I was in another magical place I like to visit every year—the mountains of southern Ecuador, where I was studying the villagers with Laron syndrome.” Prof. Valter Longo “The Longevity Diet”.   
+Photo: In Ecuador with people who lacked the receptor for growth hormone, a disorder known as Laron syndrome. After five years of working together, Doctor Guevara and I published our findings concluding that there was a major decrease in the incidence of cancer and diabetes in subjects with Laron syndrome, despite poor diet (consuming large quantities of fried food) and unhealthy lifestyle choices (smoking, drinking, etc.). These findings were the last missing pieces to support my theory that similar genes and longevity programs can protect organisms against aging and disease.  
+Author’s proceeds will be donated to the Create Cures Foundation in Los Angeles and Fondazione Valter Longo Onlus in Milan to support and offer free nutritional assistance to patients in a critical health and economic condition, to centers for people with disabilities and older adults, and women's shelters, as well as to improve and spread our educational and awareness-raising programs for schools, families, children, and adolescents. Help us to offer help!   
+Create Cures Foundation info@createcures.org  
+#profvalterlongo #dietadellalongevità #allatavoladellalongevità  
+  
+  
+Osteopenia (Low Bone Density)  
+
+Sarcopenia loss of skeletal muscle mass and strength.   
+  
+Beginning as early as the 4th decade of life, evidence suggests that skeletal muscle mass and skeletal muscle strength decline in a linear fashion, with up to 50% of mass being lost by the 8th decade of life .  
+//  Treatments: Exercise  //  
+  
+  
+  
+Prof. Valter Longo   · 2022-7-2  
+  https://www.facebook.com/watch/?v=1452581111870559  
+The Doctor Gundry's Podcast. Professor Longo talks about the pillars of longevity, fasting, and how to improve our health. watch the video at the following link:  
+​​https://www.youtube.com/watch?v=DzLsv0glDes  
+  
+莢果 Legume  
+  https://en.wikipedia.org/wiki/Legume  
+  
+  https://en.wikipedia.org/wiki/Insulin-like_growth_factor_1  
+  https://en.wikipedia.org/wiki/Insulin  
+  
+  
+  
+Prof. Valter Longo   · 2022-6-30  
+  https://www.facebook.com/profvalterlongo/posts/3325987387727381  
+Longevity Places. Ikaria, Greece. Have you been there? Would you like to visit it? What do you think about this lifestyle? Send us your comments.  
+In Ikaria, its population lives a long time, 1 in 3 inhabitants reaches 90 years. The elderly follow a purely Mediterranean-based diet with lots of fruit, vegetables, whole grains, olive oil and prefer goat's milk and cheeses. They love to drink tea made from sage, oregano, wild rosemary, etc. with family and friends, which are always a priority, and many of them take an afternoon nap, while being very physically active during the day (gardening, walking). They sometimes fast according to the rules of Orthodox Christianity.   
+  
+  
+  
+Episode 3 - Fasting & Mimicking Fasting / Create Cures Foundation / Jun 25, 2022  
+  https://youtu.be/yow4fgRVI5Y  
+167 views / 9 / 690 subscribers  
+The word "fasting" gets thrown around a lot these days.  Learn the benefits, risks, and best practices to incorporate fasting into your lifestyle to improve longevity in a sustainable way with Frida Hovik, MS, RDN and Katie Reines MS,RDN  
+  
+  
+-----------------------------------------------------------  
+  
+Live well for longer_健康啲‧長命啲：性愛、藥物與酒精 05/07/2022  
+  https://www.rthk.hk/tv/dtt31/programme/livewellforlonger/episode/821401  
+首集的焦點分別是性愛、藥物與酒精，主持人 Kate Quilton 與 Tamal Ray 會探討全新男性避孕藥、 無宿醉酒精， 以及深受大學生歡迎的聰明藥有何作用。 而特派記者 Morland Sanders 則從不同角度， 了解備受爭議的藥用大麻。 此外，一班愛好杯中物的女性會嘗試戒酒一個月，測試對健康的影響。  
+粵語/英語　(電視版)  2022年7月5日 星期二晚上10時30分  
+The first of a brand new health series; this week is all about sex, drugs and alcohol.  Kate Quilton and Tamal Ray investigate a range of subjects including the new male contraceptive, a supposed hangover free version of alcohol and study drugs. While investigative reporter Morland Sanders looks at whether it’s time to lift the ban on medical marijuana. Finally, a group of women trial a month off the booze to see if it really makes a difference to their health.  
+Cantonese/ English (TV Version)  2022.07.05 TUE 10:30pm  網上重溫至 04/08/2022  
+Tag: 性愛、毒品與酒精,Sex, Drugs and Alcohol,健康啲‧長命啲,Live well for longer,Kate Quilton,Tamal Ray  
+  
+  
+Live well for longer_健康啲‧長命啲：壓力與血壓 12/07/2022  
+  https://www.rthk.hk/tv/dtt31/programme/livewellforlonger/episode/821402  
+壓力會影響身心健康，但人類似乎很難避過壓力。引吭高歌是否可以減壓？空氣污染怎樣威脅血壓以至心臟？最新的科學突破，如何有助大腦長期保持健康？特派記者Morland Sanders則走入生物駭客的世界，親身測試無壓力睡眠。而一群患有高血壓的志願者，會測試不同食品對降血壓的作用。  
+粵語/英語　(電視版)  2022年7月12日 星期二晚上10時30分  
+In this episode Kate Quilton and Tamal Ray look at a health problem that affects us all - stress. They investigate whether singing can measurably influence the stress markers in your body, the surprising effects of pollution on our heart and the latest science around long-term brain health. Investigative journalist Morland Sanders delves into the world of biohacking and a group of volunteers with high blood pressure trial the impact of foods that can supposedly make a difference.  
+Cantonese/ English (TV Version)  2022.07.12 TUE 10:30pm  網上重溫至 11/08/2022  
+Tag: Live well for longer,健康啲‧長命啲,Morland Sanders,生物駭客,Stress and Hypertension,壓力與血壓  
+  
+  
+-----------------------------------------------------------  
+  
+-----------------------------------------------------------  
   
   
 -----------------------------------------------------------  
