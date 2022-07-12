@@ -280,7 +280,7 @@ update : 2022-04-28_1428
 update : 2022-07-13_0234    
   
   
-Prof. Valter Longo  2022-07-09   · 
+Prof. Valter Longo  2022-07-09   ·   
   https://www.facebook.com/profvalterlongo/posts/3332846060374847  
 “I was in another magical place I like to visit every year—the mountains of southern Ecuador, where I was studying the villagers with Laron syndrome.” Prof. Valter Longo “The Longevity Diet”.   
 Photo: In Ecuador with people who lacked the receptor for growth hormone, a disorder known as Laron syndrome. After five years of working together, Doctor Guevara and I published our findings concluding that there was a major decrease in the incidence of cancer and diabetes in subjects with Laron syndrome, despite poor diet (consuming large quantities of fried food) and unhealthy lifestyle choices (smoking, drinking, etc.). These findings were the last missing pieces to support my theory that similar genes and longevity programs can protect organisms against aging and disease.  
