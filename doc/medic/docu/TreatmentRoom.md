@@ -85,10 +85,9 @@ missing 幫緊你醫緊你 EP54 2022.2.04/06
   https://youtu.be/z1gg2RpJC3U  
   
   
-幫緊你醫緊你 2021.12.19 EP47 燒焦年齡 糖化物質AGE		henry li Dec 20, 2021  
+幫緊你醫緊你 2021.12.19 EP47 燒焦年齡 糖化物質AGE / henry li Dec 20, 2021  
   https://youtu.be/1r1YqQdyIOI  
-1,937 views  
-2.83K subscribers  
+1,937 views  / 2.83K subscribers  
 燒焦年齡 糖化物質AGE  
 糖化終產物 Advanced glycation end products  
   https://en.wikipedia.org/wiki/Advanced_glycation_end-product  
@@ -115,15 +114,13 @@ total cholesterol to high-density lipoprotein cholesterol (TC/HDL-C) ratio
 沒有了來源～EP54 ( 幫緊你醫緊你)(人手錄影)(鳴謝：討論區義無反顧人手錄影)(鳴謝：討論區提供BT來源 )  
   
   
-幫緊你醫緊你 2022.2.27 EP57 immunity / bone-density / Vitamin-D / 木耳		henry li Mar 1, 2022  
+幫緊你醫緊你 2022.2.27 EP57 immunity / bone-density / Vitamin-D / 木耳 / henry li Mar 1, 2022  
   https://youtu.be/7M2ssydyTks  
-2,161 views  
-3.06K subscribers  
+2,161 views  / 3.06K subscribers  
   
-幫緊你醫緊你 EP58 heart attack		henry li Mar 15, 2022  
+幫緊你醫緊你 EP58 heart attack / henry li Mar 15, 2022  
   https://youtu.be/YcyfgRcw95A  
-378 views  
-3.06K subscribers  
+378 views  / 3.06K subscribers  
   
   
   ========================================    
@@ -170,10 +167,9 @@ HKopenTV 健康原因講多D TBS 《健康好吃驚》（日語：駆け込み�
   https://zh.wikipedia.org/wiki/%E5%81%A5%E5%BA%B7%E5%A5%BD%E5%90%83%E9%A9%9A  
   
   
-健康原因講多D EP105【咖啡☕🆚綠茶🍵🫖】Coffe or Tea?👀		henry li Mar 8, 2022  
+健康原因講多D EP105【咖啡☕🆚綠茶🍵🫖】Coffe or Tea?👀 / henry li Mar 8, 2022  
   https://youtu.be/r3CY3wd2z38  
-1,152 views  
-3.06K subscribers  
+1,152 views  / 3.06K subscribers  
   
   
   
@@ -186,15 +182,13 @@ HKopenTV 健康原因講多D TBS 《健康好吃驚》（日語：駆け込み�
   https://zh.wikipedia.org/wiki/%E6%9C%80%E7%B5%82%E8%AD%A6%E5%91%8A%EF%BC%81%E6%81%90%E6%80%96%E5%AE%B6%E5%BA%AD%E9%86%AB%E5%AD%B8  
     
   
-ViuTV 恐怖醫學 EP220【今次先送你令腦部回復年青秘法！】第一招！係你我都熟悉嘅打麻雀？🀅🀅🀅		henry li Mar 1, 2022  
+ViuTV 恐怖醫學 EP220【今次先送你令腦部回復年青秘法！】第一招！係你我都熟悉嘅打麻雀？🀅🀅🀅 / henry li Mar 1, 2022  
   https://youtu.be/De2yB4qTE_o  
-1,126 views  
-3.06K subscribers  
+1,126 views  / 3.06K subscribers  
   
-ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】		henry li Mar 8, 2022  
+ViuTV 恐怖醫學 EP221【食鹽多，重口味，咩都話口淡淡】 / henry li Mar 8, 2022  
   https://youtu.be/tLE6OxXKpiw   
-949 views  
-3.06K subscribers  
+949 views  / 3.06K subscribers  
   
   
 -----------------------------------------------------------  
