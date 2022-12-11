@@ -1,9 +1,8 @@
 Self_Learning / English / pronunciation  
-  https://github.com/kwankunghkg/Self_Learning/new/main/English.md  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/English/pronunciation.md  
   
-last update : 20221109_2101(UTC+8)   
-  
-prev update : 20221108_1923(UTC+8)  
+last update : 20221211_1508(UTC+8)  
+prev update : 20221211_1508(UTC+8)  
   
 ---------------------------------------------  
   
