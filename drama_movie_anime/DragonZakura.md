@@ -1,6 +1,6 @@
 --  
   
-Dragon Zakura (東大特訓班) 2005 ‧ Drama   
+龍櫻 Dragon Zakura (東大特訓班) TBS 2005 ‧ Drama   
 https://zh.wikipedia.org/zh-hk/%E6%9D%B1%E5%A4%A7%E7%89%B9%E8%A8%93%E7%8F%AD  
   
 有 韓劇版 (翻拍劇本) 都係 highly recommended for parents 合家歡時間  
