@@ -26,3 +26,14 @@ https://m.colafun.com/305.html
   
 ----
   
+Dear Miss Dear Sir, i like this drama very much ...  
+龍櫻 Dragon Zakura (東大特訓班) TBS 2005 ‧ Drama     
+  
+another one is 墊底辣妹   
+  https://zh.wikipedia.org/wiki/%E5%A2%8A%E5%BA%95%E8%BE%A3%E5%A6%B9  
+  
+當然還有N年前的 GTO  
+  https://zh.wikipedia.org/wiki/%E9%BA%BB%E8%BE%A3%E6%95%99%E5%B8%ABGTO  
+  
+----
+  
