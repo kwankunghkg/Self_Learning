@@ -5,7 +5,10 @@ https://zh.wikipedia.org/zh-hk/%E6%9D%B1%E5%A4%A7%E7%89%B9%E8%A8%93%E7%8F%AD
   
 有 韓劇版 (翻拍劇本) 都係 highly recommended for parents 合家歡時間  
 KBS 電視劇：學習之神  
-
+  
+日劇 龍櫻 韓劇 學習之神 講述一班高中學生克服公開試的成長故事  
+劇中包含很多有效考試技巧  
+  
 ----
   
 日劇 龍櫻 東大特訓班 2005  
