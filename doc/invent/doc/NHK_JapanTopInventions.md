@@ -108,6 +108,11 @@ renewii / 3.52K subscribers / 2,371 views  May 14, 2020
 	Recorded from the NHK World Satellite Feed at Full HD 1080p  
 	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen, sometimes called the bullet train, which set a new record for high-speed rail, 256km/h, in its trial runs. The inspiration for unlocking that incredible speed came from aerodynamic airplanes. Shinkansen technology is now being adopted around the world in places like the UK and Taiwan. This time, we discover the drama behind the creation of this high-speed invention.  
   
+NHK WORLD-JAPAN 2018年4月17日 · Japan's Top Inventions 〜 Shinkansen 〜  
+April 19, Thurs. 0:30 / 6:30 / 12:30 / 18:30 (JST)  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20180419/2072002/  
+	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen. Discover the drama behind the creation of the bullet train.  
+  
 ----  
   
   
