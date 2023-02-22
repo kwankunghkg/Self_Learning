@@ -39,8 +39,8 @@ Japan's Top Inventions - ALoneArchivist
 Conveyor Belt Sushi 廻轉壽司 robotics - S01E01  
 Automatic Thread Trimming Sewing Machines - S2020E10  
 Quartz Wristwatches - S01E05  
-Shinkanshen -   
-Handheld Digital Pets - [2021-01-27]   
+Shinkanshen 新幹線 - 2018年4月17日  
+Handheld Digital Pets - 2021-01-27   
 Handheld Calculators - S01E09  
   
   
@@ -48,7 +48,7 @@ Handheld Calculators - S01E09
 ----  
   
   
-Film Farming - Japan's Top Inventions / NHK WORLD-JAPAN / Aug 19, 2021  
+薄膜農法 Film Farming - Japan's Top Inventions / NHK WORLD-JAPAN / Aug 19, 2021  
 https://youtu.be/3VDsguNyJ0c  
 2.15M subscribers  271,142 views     
 A Japanese farming technique using film shows potential for crop cultivation in arid regions and areas affected by soil degradation.  
@@ -104,7 +104,7 @@ https://youtu.be/jtiAy98fIgI
   
 ----  
   
-Shinkansen Japan's Top Inventions FullHD 1080p NHK World  
+新幹線 Shinkansen Japan's Top Inventions FullHD 1080p NHK World  
   https://youtu.be/suwirugb8oM  
 renewii / 3.52K subscribers / 2,371 views / May 14, 2020  
 	Minidocumentary about the creation of the World's fastest train: The Shinkansen.  
@@ -681,6 +681,96 @@ FB社團: 超犀利裁縫
   
 ----  
   
+  
+  
+  
+----  
+  
+  
+----  
+  
+  
+----  
+  
+  
+----  
+  
+----  
+  
+10 BEST INVENTIONS FOR YOUR GARAGE / TechZone / Nov 29, 2022  
+  https://youtu.be/OcA5pXrCL1Y  
+4.25M subscribers / 2,566,999 views   
+  
+00:00 - AHCON DSL3500 Double Scissor Lift   
+00:56 - BlueCave Storage System   
+01:47 - REMA TIP TOP   
+02:37 - WDT-250 Water Drain Cleaning Tool   
+03:27 - 3D Wheel Alignment Stand  
+04:22 - Jemms Nutrunner   
+04:54 - Wheel Slogger   
+05:39 - Mini-Ductor® Venom® HP   
+06:29 - Strut Coil Spring Compressor Tool   
+07:10 - Car Bench UL-300   
+08:02 - Equalizer™ TSK710 Terminator   
+08:57 - Laser Tools CV Bootgun   
+09:52 - Febi joint play tester   
+  
+BRAIN TIME ► https://goo.gl/tTWgH2  
+  
+1) 3D Wheel Alignment Stand(Preview)   
+https://www.youtube.com/watch?v=hb2bP...    
+  
+2) Jemms Nutrunner (Preview)    
+https://www.youtube.com/watch?v=qIuT-...    
+  
+3) Car Bench UL-300 (Preview)   
+https://www.youtube.com/watch?v=4K8Uw...    
+  
+4) BlueCave Storage System (Preview)   
+https://www.youtube.com/watch?v=doWSw...    
+https://www.youtube.com/watch?v=heDAo...    
+  
+5) AHCON DSL3500 Double Scissor Lift   
+https://www.youtube.com/watch?v=FSDbZ...    
+  
+6) Equalizer™ TSK710 Terminator   
+https://www.youtube.com/watch?v=vxTrL...    
+  
+7) WDT-250 Water Drain Cleaning Tool   
+https://www.youtube.com/watch?v=kCzXg...    
+  
+8) Laser Tools CV Bootgun   
+https://www.youtube.com/watch?v=y8vHF...    
+  
+9) Febi joint play tester   
+https://www.youtube.com/watch?v=QQI__...    
+  
+10) REMA TIP TOP   
+https://www.youtube.com/watch?v=6Dvbk...    
+  
+11) Wheel Slogger   
+https://www.youtube.com/watch?v=b6FP8...    
+  
+12) Mini-Ductor® Venom® HP   
+https://www.youtube.com/watch?v=w5K9W...    
+https://www.youtube.com/watch?v=EsWdz...    
+https://www.youtube.com/watch?v=VUDz4...    
+  
+13) Strut Coil Spring Compressor Tool   
+https://www.youtube.com/watch?v=xuLPL...    
+  
+  
+  
+----  
+  
+  
+----  
+  
+  
+----  
+  
+  
+----  
   
   
 ----  
