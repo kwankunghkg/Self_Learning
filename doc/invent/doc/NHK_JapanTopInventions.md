@@ -65,6 +65,26 @@ Film Farming, Making It Possible for Anyone to Farm Anywhere
 	IMEC makes it possible to cultivate crops without having to worry about pests, pathogens and soil pollution  
   
   
+Carbon Farming : A Climate Solution Under Our Feet - NHK WORLD PRIME / NHK WORLD-JAPAN /Mar 28, 2022   
+https://youtu.be/rvHJKqU-mZo  
+2.15M subscribers  928,743 views    
+00:00 – Opening  
+00:32 – From a NY organic farm  
+01:45 – Carbon farming: What is it?  
+03:03 – Regenerative agriculture: A Minnesota Case Study  
+06:04 – Ray Archuleta: Visually comparing soil health  
+12:19 – Gabe Brown: The 5 principles  
+19:14 – Shinano Takuro: Visualized rhizosphere  
+23:05 – Carbon farming around the world  
+23:42 – Toshimichi Yoshida: Our dear friend bacteria  
+38:20 – The '4 per 1000' Initiative  
+39:20 – Biochar: A Yamanashi Case Study  
+47:54 – Conclusion  
+Regenerative agriculture, also known as carbon farming, is one way people are taking action against the climate crisis, turning harmful carbon emissions in the atmosphere into nutrient rich soil or biochar and using it to farm organic and sustainable food.  
+Meet carbon farming pioneers like Gabe Brown in the US, Toshimichi Yoshida in Japan and more.  
+Watch more shows on SDGs on NHK WORLD-JAPAN!  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/special/sdgs/  
+Sustainable Development Goals are the keys to a brighter and better tomorrow. NHK WORLD-JAPAN's mission is to raise awareness of each of the 17 SDGs among viewers and encourage them to take action.  
   
 ----  
   
