@@ -101,6 +101,12 @@ David Reis  3 subscribers  396 views  May 21, 2022  JAPAN
   
 ----  
   
+Shinkansen Japan's Top Inventions FullHD 1080p NHK World  
+  https://youtu.be/suwirugb8oM  
+renewii / 3.52K subscribers / 2,371 views  May 14, 2020  
+	Minidocumentary about the creation of the World's fastest train: The Shinkansen.  
+	Recorded from the NHK World Satellite Feed at Full HD 1080p  
+	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen, sometimes called the bullet train, which set a new record for high-speed rail, 256km/h, in its trial runs. The inspiration for unlocking that incredible speed came from aerodynamic airplanes. Shinkansen technology is now being adopted around the world in places like the UK and Taiwan. This time, we discover the drama behind the creation of this high-speed invention.  
   
 ----  
   
