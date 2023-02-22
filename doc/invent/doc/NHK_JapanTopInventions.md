@@ -22,6 +22,11 @@ NHK_日本頂尖發明_Japan's Top Inventions
   https://www3.nhk.or.jp/nhkworld/zt/ondemand/program/video/topinventions/?type=tvEpisode&  
 日本製造！本節目主要介紹日本人氣產品背後引人入勝的故事和秘密，以及在利基市場佔據最大份額的元件和機器。節目的主持人是在日本發展的喜劇演員，傑森·丹尼爾森。  
   
+Watch more full episodes of Japan's Top Inventions on NHK WORLD-JAPAN!  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/topinventions/  
+More quality content available on NHK WORLD-JAPAN!  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/  
+  
   
 ----  
   
@@ -47,14 +52,12 @@ Film Farming - Japan's Top Inventions / NHK WORLD-JAPAN / Aug 19, 2021
 https://youtu.be/3VDsguNyJ0c  
 2.15M subscribers  271,142 views     
 A Japanese farming technique using film shows potential for crop cultivation in arid regions and areas affected by soil degradation.  
+  
 	Hydrogel  
 	Crystallization  
 	Osmotic pressure  
 	Mori Yuichi, who invented film farming.  
-Watch more full episodes of Japan's Top Inventions on NHK WORLD-JAPAN!  
-  https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/topinventions/  
-More quality content available on NHK WORLD-JAPAN!  
-  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/  
+  
   
 The Japanese polymer physicist Dr. Yuichi Mori, invented the technology of film farming. He developed a cultivation system startup company named Mebiol in 1995, based on this novel technology. In the early 1990s, world nations signed the Kyoto protocol considering the global warming phenomenon as an ecological hazard. 4 Apr 2022  
   
