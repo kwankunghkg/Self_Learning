@@ -46,16 +46,15 @@ Handheld Calculators - S01E09
 Film Farming - Japan's Top Inventions / NHK WORLD-JAPAN / Aug 19, 2021  
 https://youtu.be/3VDsguNyJ0c  
 2.15M subscribers  271,142 views     
-[Skip Intro] 0:46  
-Watch more full episodes of Japan's Top Inventions on NHK WORLD-JAPAN!  
-  https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/topinventions/  
-More quality content available on NHK WORLD-JAPAN!  
-  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/  
 A Japanese farming technique using film shows potential for crop cultivation in arid regions and areas affected by soil degradation.  
 	Hydrogel  
 	Crystallization  
 	Osmotic pressure  
 	Mori Yuichi, who invented film farming.  
+Watch more full episodes of Japan's Top Inventions on NHK WORLD-JAPAN!  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/topinventions/  
+More quality content available on NHK WORLD-JAPAN!  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/  
   
 The Japanese polymer physicist Dr. Yuichi Mori, invented the technology of film farming. He developed a cultivation system startup company named Mebiol in 1995, based on this novel technology. In the early 1990s, world nations signed the Kyoto protocol considering the global warming phenomenon as an ecological hazard. 4 Apr 2022  
   
