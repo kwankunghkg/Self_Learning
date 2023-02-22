@@ -1,6 +1,8 @@
   
 20230222_NHK_日本頂尖發明_Japan's Top Inventions  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/invent/doc/NHK_JapanTopInventions.md  
   
+----  
   
 /cygdrive/c/_video_C/NHK/NHK_Japan's Top Inventions  
 $ ls -al --time-style=full-iso  NHK*  
