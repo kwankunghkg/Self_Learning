@@ -6,7 +6,7 @@
   
 /cygdrive/c/_video_C/NHK/NHK_Japan's Top Inventions  
 $ ls -al --time-style=full-iso  NHK*  
--rwx---r-x+ 1 user Unknown+Group 141075866 2021-12-12 06:36:13.004250400 +0800 "NHK_日本頂尖發明_Japan's Top Inventions_個人資料保護章 - .mp4"  
+-rwx---r-x+ 1 user Group 141075866 2021-12-12 06:36:13 +0800 "NHK_日本頂尖發明_Japan's Top Inventions_個人資料保護章 - .mp4"  
   
   
 ----  
