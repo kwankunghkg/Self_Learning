@@ -116,6 +116,15 @@ April 19, Thurs. 0:30 / 6:30 / 12:30 / 18:30 (JST)
   https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20180419/2072002/  
 	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen. Discover the drama behind the creation of the bullet train.  
   
+  
+Trains Evolving by Design / Japan Railway Journal 28m 00s  
+Broadcast on April 28, 2022 Available until April 28, 2025  
+    English中文（繁體）Português  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/2049110/  
+	In recent years, the Japanese railway industry has seen the introduction of many unique trains designed by famous designers. These new trains were made possible thanks to rolling stock manufacturers and parts suppliers coming together to meet the new design challenges. Also, not only new trains are created, but existing trains are transformed, such as JR Kyushu's Nishi Kyushu Shinkansen (scheduled to open in the fall of 2022), produced by an industrial designer. See how new design elements are causing Japanese trains to evolve.  
+  
+  
+  
 ----  
   
   
