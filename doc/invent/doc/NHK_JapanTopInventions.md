@@ -31,7 +31,7 @@ Japan's Top Inventions - ALoneArchivist
   Made in Japan! The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets.   
   Copyright by NHK WORLD-JAPAN.  
   
-Conveyor Belt Sushi - S01E01  
+Conveyor Belt Sushi 廻轉壽司 robotics - S01E01  
 Automatic Thread Trimming Sewing Machines - S2020E10  
 Quartz Wristwatches - S01E05  
 Shinkanshen -   
