@@ -36,43 +36,43 @@ All Seasons
   
 Season 1  
   
-S01E01 Conveyor Belt Sushi / March 18, 2018 NHK   
+S01E01 Conveyor Belt Sushi / March 18, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. On this episode, we discover conveyor belt sushi, an invention that's trundled its way to countries and regions around the world. The technology, in which plates of sushi are delivered via a rotating conveyor belt, actually traces its origins to a single eureka moment in a beer factory in 1950's Japan. This time, the inside story of the one man who brought this Top Invention to life.  
   
-S01E02 Shinkansen / April 19, 2018 NHK   
+S01E02 Shinkansen / April 19, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen, sometimes called the bullet train, which set a new record for high-speed rail, 256km/h, in its trial runs. The inspiration for unlocking that incredible speed came from aerodynamic airplanes. Shinkansen technology is now being adopted around the world in places like the UK and Taiwan. This time, we discover the drama behind the creation of this high-speed invention.  
   
-S01E03 Automatic Rice Cookers / May 17, 2018 NHK   
+S01E03 Automatic Rice Cookers / May 17, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, electric rice cookers, which create fluffy, great-tasting rice with the press of a button. Developed in Japan in 1955, these automated rice cookers keep growing in popularity: in 2016, exports hit a record high. In Asia and around the world, this invention plays an essential role in creating rice-based dishes. This time, the unknown story behind the birth of the electric rice cooker.  
   
-S01E04 Electronic Bidet Toilets / June 21, 2018 NHK   
+S01E04 Electronic Bidet Toilets / June 21, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. On this episode, electronic bidet toilets, which clean your bottom with a spray of warm water. On sale since 1980, some 40 million of these toilet seats have shipped, and are now sold in many countries and regions including the U.S. and China. But the creation of this high-tech, revolutionary product was anything but easy. This time, the dramatic tale behind electronic bidet toilets.  
   
-S01E05 Quartz Wristwatches / July 19, 2018 NHK   
+S01E05 Quartz Wristwatches / July 19, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, quartz wristwatches, which caused a "timepiece revolution" with their accurate timing. Built in Japan in 1969, the world's first quartz wristwatch drifted only 0.2 seconds a day, making it about 100 times more accurate than previous watches. Even now, 96% of watches around the world use the same system. We trace the drama behind the creation of this super-accurate timepiece.  
   
-S01E06 Instant Ramen / August 16, 2018 NHK   
+S01E06 Instant Ramen / August 16, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, a product first produced in Japan in 1958: instant ramen. With over 100 billion servings eaten every year, this instant meal has become a worldwide staple. The inspiration for this invention came from a surprising source: the deep-fried Japanese dish known as tempura. This time, we bite into the story behind instant ramen, a food loved around the world.  
   
-S01E07 Portable Music Players / September 20, 2018 NHK   
+S01E07 Portable Music Players / September 20, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, the gadget that lets you enjoy music anytime, anywhere with just a pair of headphones: the portable music player. The world's first of these portable players was developed by a Japanese manufacturer in 1979. Listening to music on the go is now a part of daily life around the world. This time, the story of the invention that made it all possible.  
   
-S01E08 Gastrocameras / October 18, 2018 NHK   
+S01E08 Gastrocameras / October 18, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time we focus on gastrocameras, which have led to a revolution in cancer treatment. The first gastrocamera, the predecessor of those now used by hospitals around the world, was developed in Japan in 1950. We probe the untold drama behind the creation of the gastrocamera and look into the technological evolution that continues today.  
   
-S01E09 Handheld Calculators / November 22, 2018 NHK   
+S01E09 Handheld Calculators / November 22, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, we focus on electronic calculators. Pocket-sized calculators have become so common that everyone can have one, and are still used today. The world's first pocket-sized calculator was developed in Japan in 1972, and made calculators available to the general public for the first time. Let's discover the story behind its creation, including inspiration from a surprising source: bowling!  
   
-S01E10 Erasable Pens / December 20, 2018 NHK   
+S01E10 Erasable Pens / December 20, 2018  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, we feature erasable pens, which allow users to erase their writing just like with pencil. Released in 2006, these pens' usefulness has made them a hit: over 2 billion have been sold in some 100 countries and regions around the world. Discover the unknown story of these erasable pens, whose creation was inspired by the changing leaves of autumn.  
   
   
 Season 2  
   
-S02E01 Snap-Off Utility Knives / January 17, 2019 NHK   
+S02E01 Snap-Off Utility Knives / January 17, 2019  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, we focus on utility knives whose blades, when they become dull, can be snapped off, revealing fresh blades underneath. These knives were invented in 1956 by a Japanese man who took his inspiration from both a "waste not, want not" philosophy and ... chocolate! We cut into the untold drama behind the creation of this revolutionary product, which changed the way the world thinks about utility knives.  
   
-S02E02 Acrylic Aquarium Panels / February 21, 2019 NHK   
+S02E02 Acrylic Aquarium Panels / February 21, 2019  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, an invention used around the world: acrylic aquarium panels. The very first of those panels was born in Japan in 1969 -- and the distinctive techniques used to make it were inspired by a type of noodle eaten in Japan since times long past: udon! Dive into the story behind the dramatic birth of acrylic panels, which sparked an aquarium revolution, and see how they've continued to evolve.  
     
   
@@ -1029,3 +1029,4 @@ https://www.youtube.com/watch?v=xuLPL...
   
   
 ----  
+End of File.
