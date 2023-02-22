@@ -2,11 +2,12 @@
 20230222_NHK_日本頂尖發明_Japan's Top Inventions  
   
   
- /cygdrive/c/_video_C/docu/NHK_Japan's Top Inventions  
+/cygdrive/c/_video_C/NHK/NHK_Japan's Top Inventions  
 $ ls -al --time-style=full-iso  NHK*  
--rwx---r-x+ 1 kk Unknown+Group 141075866 2021-12-12 06:36:13.004250400 +0800 "NHK_日本頂尖發明_Japan's Top Inventions_個人資料保護章 - .mp4"  
+-rwx---r-x+ 1 user Unknown+Group 141075866 2021-12-12 06:36:13.004250400 +0800 "NHK_日本頂尖發明_Japan's Top Inventions_個人資料保護章 - .mp4"  
   
   
+----  
   
 Japan's Top Inventions  
 34 episodes  
@@ -20,17 +21,13 @@ NHK_日本頂尖發明_Japan's Top Inventions
 日本製造！本節目主要介紹日本人氣產品背後引人入勝的故事和秘密，以及在利基市場佔據最大份額的元件和機器。節目的主持人是在日本發展的喜劇演員，傑森·丹尼爾森。  
   
   
+----  
   
 Japan's Top Inventions - ALoneArchivist  
 7 videos 471 views Last updated on Jan 31, 2022  
   https://www.youtube.com/playlist?list=PLuzzqveomF2Haw-AedxL2GpKrLl7_aUrh  
-  
-Play all  
-Japan's Top Inventions  
-ALoneArchivist  
-7 videos 471 views Last updated on Jan 31, 2022  
   Made in Japan! The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets.   
-Copyright by NHK WORLD-JAPAN.  
+  Copyright by NHK WORLD-JAPAN.  
   
 Conveyor Belt Sushi - S01E01  
 Automatic Thread Trimming Sewing Machines - S2020E10  
@@ -41,6 +38,7 @@ Handheld Calculators - S01E09
   
   
   
+----  
   
   
 Film Farming - Japan's Top Inventions / NHK WORLD-JAPAN / Aug 19, 2021  
@@ -66,6 +64,7 @@ Film Farming, Making It Possible for Anyone to Farm Anywhere
   
   
   
+----  
   
 Auto Bread Maker  
   
@@ -79,10 +78,13 @@ https://youtu.be/jtiAy98fIgI
 David Reis  3 subscribers  396 views  May 21, 2022  JAPAN  
   
   
+----  
   
   
+----  
   
   
+----  
   
   
 Automatic Ticket Gates / Tool Setters / Japan's Top Inventions 28m 00s  
@@ -497,14 +499,17 @@ The behind-the-scenes tales of hit products and creations from Japan: this is Ja
 本期節目為您介紹流行全球的小型攝影機。1989年，一家日本公司發明了全球體積最小、重量最輕的攝影機，機身與當時的日本護照長度相等。小型攝影機幫助人們記錄孩子成長、旅遊度假等珍貴的回憶。一起探尋小型攝影機背後鮮為人知的發明故事。  
   
   
+----  
   
   
   
   
+----  
   
   
   
   
+----  
   
   
 Auto Bread Maker  
@@ -561,10 +566,15 @@ https://sheeplovershaun.blogspot.com/...
   
   
   
+----  
   
   
   
+----  
   
   
   
+----  
   
+  
+----  
