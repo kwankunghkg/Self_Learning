@@ -158,14 +158,10 @@ The fascinating stories and secrets behind hit Japanese products, plus parts and
   
   
   
-Lithium-Ion Batteries / Dust Collectors for Tunnel Construction / Japan's Top Inventions 28m 00s  
+Lithium-Ion Batteries / Dust Collectors for Tunnel Construction / Japan's Top Inventions 28m 00s  English中文（繁體）ภาษาไทย    
 Broadcast on November 26, 2022 Available until February 18, 2024  
   https://www3.nhk.or.jp/nhkworld/en/ondemand/video/2091019/  
-    English中文（繁體）ภาษาไทย  
-    #Biz/Tech  
-    #Transcript  
 The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind lithium-ion batteries, a key part of smartphones, laptops and electric vehicles. In the second half: dust collectors for tunnel construction, which help keep workers safe at worksites around the world.  
-  
   
 鋰離子電池 / 隧道集塵機 / 日本頂尖發明 Japan's Top Inventions 28分00秒  
 播放日期 2022年11月26日 播放結束日期 2024年2月18日  
