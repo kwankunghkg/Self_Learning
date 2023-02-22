@@ -90,9 +90,16 @@ Sustainable Development Goals are the keys to a brighter and better tomorrow. NH
   
 ----  
   
-Auto Bread Maker 麵包機  
+麵包機 Home Bread Makers - Japan's Top Inventions  
+Broadcast on January 8, 2020  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200109/2072027/  
+	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, home bread makers. These bread makers, first released in Japan in 1987, allow you to bake fresh bread at home by simply adding the ingredients and pushing a button. With over 10 million units shipped to 26 countries and regions, they're beloved worldwide. This time, the little-known story behind the 3 years of hard baking work involved in their creation.  
+	The first model of the home bread maker  
+	A fresh loaf baked with the first model of the bread maker  
+	Recent home bread maker models  
   
-Bread Makers - NHK World Japan's Top Inventions   
+  
+Home Bread Makers - NHK World Japan's Top Inventions   
 https://youtu.be/vmuINioKHrY  
 David Reis / 3 subscribers / 396 views / May 21, 2022  JAPAN  
 	The story of how a group of women and National-Panasonic invested the world's first automatic bread maker.  
