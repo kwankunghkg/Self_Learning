@@ -30,6 +30,130 @@ More quality content available on NHK WORLD-JAPAN!
   
 ----  
   
+薄膜農法 Film Farming /  
+Robotic Exoskeletons /  
+蚊香 Mosquito Coils /  
+罐頭麵包 Canned Bread /  
+廻轉壽司 Conveyor Belt Sushi /  
+麵包機 Home Bread Maker /  
+Juki 自動切線縫紉機 /  
+新幹線 Shinkansen /  
+... 
+  
+----  
+  
+----  
+  
+Japan's Top Inventions - ALoneArchivist  
+7 videos 471 views Last updated on Jan 31, 2022  
+  https://www.youtube.com/playlist?list=PLuzzqveomF2Haw-AedxL2GpKrLl7_aUrh  
+  Made in Japan! The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets.   
+  Copyright by NHK WORLD-JAPAN.  
+  
+Conveyor Belt Sushi 廻轉壽司 robotics - S01E01  
+  https://youtu.be/N2wZla4lUqQ  
+Automatic Thread Trimming Sewing Machines - S2020E10  
+  https://youtu.be/vkRyx5Lb9yk  
+Quartz Wristwatches - S01E05  
+  https://youtu.be/1kWO_YVpqzs  
+Shinkansen 新幹線 - 2018年4月17日  
+Handheld Digital Pets - 2021-01-27   
+Handheld Calculators - S01E09  
+  
+  
+  
+----  
+  
+  
+薄膜農法 Film Farming - Japan's Top Inventions / NHK WORLD-JAPAN / Aug 19, 2021  
+https://youtu.be/3VDsguNyJ0c  
+2.15M subscribers  271,142 views     
+A Japanese farming technique using film shows potential for crop cultivation in arid regions and areas affected by soil degradation.  
+  
+	Hydrogel  
+	Crystallization  
+	Osmotic pressure  
+	Mori Yuichi, who invented film farming.  
+  
+  
+The Japanese polymer physicist Dr. Yuichi Mori, invented the technology of film farming. He developed a cultivation system startup company named Mebiol in 1995, based on this novel technology. In the early 1990s, world nations signed the Kyoto protocol considering the global warming phenomenon as an ecological hazard. 4 Apr 2022  
+  
+Film Farming, Making It Possible for Anyone to Farm Anywhere  
+  https://www.gov-online.go.jp/eng/publicity/book/hlj/html/202204/202204_10_en.html  
+	Mori Yuichi (chairman of Mebiol Inc.) shows how the plants extend their roots on the film surface · Fruit and vegetable cultivation using IMEC (intelligent membrane culture).  
+	IMEC makes it possible to cultivate crops without having to worry about pests, pathogens and soil pollution  
+  
+  
+Carbon Farming : A Climate Solution Under Our Feet - NHK WORLD PRIME / NHK WORLD-JAPAN /Mar 28, 2022   
+https://youtu.be/rvHJKqU-mZo  
+2.15M subscribers  928,743 views    
+00:00 – Opening  
+00:32 – From a NY organic farm  
+01:45 – Carbon farming: What is it?  
+03:03 – Regenerative agriculture: A Minnesota Case Study  
+06:04 – Ray Archuleta: Visually comparing soil health  
+12:19 – Gabe Brown: The 5 principles  
+19:14 – Shinano Takuro: Visualized rhizosphere  
+23:05 – Carbon farming around the world  
+23:42 – Toshimichi Yoshida: Our dear friend bacteria  
+38:20 – The '4 per 1000' Initiative  
+39:20 – Biochar: A Yamanashi Case Study  
+47:54 – Conclusion  
+Regenerative agriculture, also known as carbon farming, is one way people are taking action against the climate crisis, turning harmful carbon emissions in the atmosphere into nutrient rich soil or biochar and using it to farm organic and sustainable food.  
+Meet carbon farming pioneers like Gabe Brown in the US, Toshimichi Yoshida in Japan and more.  
+Watch more shows on SDGs on NHK WORLD-JAPAN!  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/special/sdgs/  
+Sustainable Development Goals are the keys to a brighter and better tomorrow. NHK WORLD-JAPAN's mission is to raise awareness of each of the 17 SDGs among viewers and encourage them to take action.  
+  
+----  
+  
+麵包機 Home Bread Makers - Japan's Top Inventions  
+Broadcast on January 8, 2020  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200109/2072027/  
+	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, home bread makers. These bread makers, first released in Japan in 1987, allow you to bake fresh bread at home by simply adding the ingredients and pushing a button. With over 10 million units shipped to 26 countries and regions, they're beloved worldwide. This time, the little-known story behind the 3 years of hard baking work involved in their creation.  
+	The first model of the home bread maker  
+	A fresh loaf baked with the first model of the bread maker  
+	Recent home bread maker models  
+  
+  
+Home Bread Makers - NHK World Japan's Top Inventions   
+https://youtu.be/vmuINioKHrY  
+David Reis / 3 subscribers / 396 views / May 21, 2022  JAPAN  
+	The story of how a group of women and National-Panasonic invested the world's first automatic bread maker.  
+  
+麵包機初體驗 🍞| Panasonic SD-P104 💖 | Bread Maker 😋| Bread making｜吐司 / Sheeplover羊羊 /  Mar 14, 2020  
+https://youtu.be/jtiAy98fIgI  
+  
+  
+  
+----  
+  
+新幹線 Shinkansen Japan's Top Inventions FullHD 1080p NHK World  
+  https://youtu.be/suwirugb8oM  
+renewii / 3.52K subscribers / 2,371 views / May 14, 2020  
+	Minidocumentary about the creation of the World's fastest train: The Shinkansen.  
+	Recorded from the NHK World Satellite Feed at Full HD 1080p  
+	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen, sometimes called the bullet train, which set a new record for high-speed rail, 256km/h, in its trial runs. The inspiration for unlocking that incredible speed came from aerodynamic airplanes. Shinkansen technology is now being adopted around the world in places like the UK and Taiwan. This time, we discover the drama behind the creation of this high-speed invention.  
+  
+NHK WORLD-JAPAN 2018年4月17日 · Japan's Top Inventions 〜 Shinkansen 〜  
+April 19, Thurs. 0:30 / 6:30 / 12:30 / 18:30 (JST)  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20180419/2072002/  
+	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen. Discover the drama behind the creation of the bullet train.  
+  
+  
+Trains Evolving by Design / Japan Railway Journal 28m 00s  
+Broadcast on April 28, 2022 Available until April 28, 2025  
+    English中文（繁體）Português  
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/2049110/  
+	In recent years, the Japanese railway industry has seen the introduction of many unique trains designed by famous designers. These new trains were made possible thanks to rolling stock manufacturers and parts suppliers coming together to meet the new design challenges. Also, not only new trains are created, but existing trains are transformed, such as JR Kyushu's Nishi Kyushu Shinkansen (scheduled to open in the fall of 2022), produced by an industrial designer. See how new design elements are causing Japanese trains to evolve.  
+  
+  
+  
+----  
+  
+  
+----  
+  
 Home / Series / Japan's Top Inventions / Aired Order /  
 All Seasons  
   https://thetvdb.com/series/346731-show/allseasons/official    
@@ -175,214 +299,84 @@ Season 4
     
   
 S04E01 Planetariums / January 14, 2021   
-  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, planetariums, which realistically reproduce the look of the starry night sky. In 2014, a Japanese firm succeeded in creating a planetarium projector that displays each of the approximately 9,500 stars visible to the naked eye in incredible detail, including accurate coloring. We dive into the story behind the creation of that top invention and learn about the latest models.    
   
 S04E02 Handheld Digital Pets / January 28, 2021   
-  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, the story behind the handheld digital pets known as Tamagotchi. Released by a Japanese toy maker in 1996, these toys let owners "raise" an on-screen digital pet, feeding it, putting it to bed, playing with it and more. We dig into the little-known story behind the creation of these handheld digital pets, a giant hit in some 30 countries and regions.    
   
 S04E03 Home Gaming Console / Smartphone Springs / May 15, 2021   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. Our host is Jason Danielson, a comedian who performs in Japan. We dive into the story behind one of the best-selling home gaming consoles of all time. Next, we look into the tiny springs used in smartphone cameras to reduce lens shake, and the company that makes these springs. Its springs are used in some 40% of smartphones that feature optical image stabilization!    
   
 S04E04 Neurosurgical Instruments / Weather Meters / July 10, 2021   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half of the show, the story behind neurosurgical instruments used and loved by surgeons in over 50 countries and regions. In the second half, weather meters, machines which reproduce outdoor conditions like sunlight. They're used to test how products like apparel, cars, housing materials, appliances and more stand up to environmental conditions.    
   
 S04E05 Body Fat Scales / Luggage Rack Mirrors / July 31, 2021   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half, the world's first scales on which you can measure your body fat percentage just by stepping on. In the second half, luggage rack mirrors installed in airplanes. Helping people easily check for lost items, they are now used by over 100 airlines around the world.    
   
 S04E06 Sushi Robots / Refractometers / October 30, 2021   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half of the program, we cover the secrets behind the development of sushi robots, which automatically grip and mold rice, and have helped spread sushi around the world. In the second half of the program, we introduce refractometers, which instantly display the sugar content of fruit when a few drops of fruit juice are added.    
   
 S04E07 Camera Phones / Electron Microscopes / November 20, 2021   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half, the story behind Japanese camera phones, created in the early 2000s, which many later devices took design cues from. In the second half, electron microscopes, an essential tool in the development of new medicines to treat COVID-19, and a visit to the Tokyo electronics manufacturer that has over 60% of the global market share for these devices.    
   
 S04E08 Radio Controlled Watches / Encrusting Machines / December 11, 2021   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half of the show, we cover the world's first full metal case radio controlled watch, created by a Japanese watch manufacturer in 2003. In the second half: devices known as encrusting machines, which make food items with fillings. We visit the Japanese company that makes these devices which are used in over 126 countries and regions worldwide.  
   
 Season 5  
     
   
 S05E01 Home Blood Pressure Monitors / Test Patterns / January 8, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind home blood pressure monitors that use fuzzy logic, developed by a Japanese company in 1991. In the second half: test patterns with colorful gradients and fine lines used to evaluate the performance of photocopiers. We visit the Japanese printing company that holds around 90% of the global market share for these patterns.    
   
 S05E02 Drawing Tablets / Cascades (Airplane Component) / January 29, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind the development of drawing tablets created in 1987 that are used for comics, animation and commercial design. In the second half: cascades, an important airplane component. We go behind the scenes with the Japanese company that controls over 90% of the global market share for these components.    
   
 S05E03 Laptop Computers / Purification & Separation Systems / February 19, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind laptops developed by a Japanese company in 1985 that created a huge new market for portable computers. In the second half: purification & separation systems that isolate and extract specific compounds from other organic compounds. We go behind the scenes with a Japanese company that develops this technology.    
   
 S05E04 Surgical Needles / Pharmaceutical Manufacturing Equipment / March 19, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind the world's smallest surgical needles—only 0.03mm in diameter. In the second half: pharmaceutical manufacturing equipment essential for making pills. They apply coatings which allow easier ingestion and controlled release of the medicine. We go behind the scenes with the Japanese company that develops this equipment.    
   
 S05E05 High-Capacity Optical Disks / Automatic Skewer Machines / March 26, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: high-capacity optical disks capable of recording many hours of high-definition shows off the TV, developed by a major Japanese manufacturer in 2002. In the second half: automatic skewer machines used in over 40 countries and regions worldwide. We show off this unique invention that was first made for chicken skewers.    
   
 S05E06 Landmine Clearance Machines / Linear Guides / May 28, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind landmine clearance machines developed by a Japanese company in 1998 which are used to safely detonate mines. In the second half: linear guides which facilitate smooth mechanical motion. We introduce the Japanese technology that's used in things like airplane seats and CT scanners.    
   
 S05E07 Ventilators for Premature Babies / Electron Beam Lithography Systems / May 30, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind ventilators developed by a Japanese company in 1984 which provide critical care for premature babies. In the second half: electron beam lithography systems, capable of drawing the finest lines in the world. We introduce the Japanese technology that's being used by researchers at universities around the world.    
   
 S05E08 Canned Bread / Automatic Dorayaki Machines / June 25, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind canned bread developed by a Japanese bakery in 1996 which doesn't go stale easily and has a long shelf-life. In the second half: a machine that makes Dorayaki, a Japanese sweet with red bean paste sandwiched by pancakes. We introduce this unique machine that's also being used to make other sandwich pancakes around the world.    
   
 S05E09 Mosquito Coils / Screw Removal Tools / August 4, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind mosquito coils, invented by a Japanese company, which help prevent mosquito-borne diseases around the world. In the second half: we introduce screw removal tools that can remove stripped screws when a normal screwdriver can't.    
   
 S05E10 Pulse Oximeters / Egg Grading & Packing Systems / September 3, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: pulse oximeters that measure blood oxygen saturation, which have saved many lives during the COVID-19 pandemic. In the second half: egg grading & packing systems which clean eggs, check for cracks, sort and pack them. We introduce these systems that are used in over 70 countries and regions worldwide.    
   
 S05E11 Low Pain Needles / Sports Wheelchairs / September 24, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind needles which cause less pain during injection, developed by a Japanese company in 2005. In the second half: sports wheelchairs made by a Japanese company which have helped athletes win over 140 medals in the Paralympic events like tennis and wheelchair racing.    
   
 S05E12 Fish Finders / Medical Simulators / October 29, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind fish finders made by a Japanese company, first used in 1948 and now found in over 80 countries and regions worldwide. In the second half: medical simulators used by medical professionals for training that look and feel real.    
   
 S05E13 Lithium-Ion Batteries / Dust Collectors for Tunnel Construction / November 26, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind lithium-ion batteries, a key part of smartphones, laptops and electric vehicles. In the second half: dust collectors for tunnel construction, which help keep workers safe at worksites around the world.    
   
 S05E14 Correction Tape / Water Filter Media / December 30, 2022   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind correction tape, the office supply that lets people fix mistakes made in pen. In the second half: water filter media that's used in 80% of Japan's water treatment facilities.  
   
 Season 6  
     
   
 S06E01 Automatic Ticket Gates / Tool Setters / February 2, 2023   
-  
     The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets. In the first half: the story behind automatic ticket gates, developed by a Japanese company in the 1960s and installed at train stations throughout Japan. In the second half: tool setters that can accurately measure the length of drill bits for precision machining to within one thousandth of a millimeter.  
   
   
-  
 ----  
   
-Japan's Top Inventions - ALoneArchivist  
-7 videos 471 views Last updated on Jan 31, 2022  
-  https://www.youtube.com/playlist?list=PLuzzqveomF2Haw-AedxL2GpKrLl7_aUrh  
-  Made in Japan! The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets.   
-  Copyright by NHK WORLD-JAPAN.  
-  
-Conveyor Belt Sushi 廻轉壽司 robotics - S01E01  
-  https://youtu.be/N2wZla4lUqQ  
-Automatic Thread Trimming Sewing Machines - S2020E10  
-  https://youtu.be/vkRyx5Lb9yk  
-Quartz Wristwatches - S01E05  
-  https://youtu.be/1kWO_YVpqzs  
-Shinkansen 新幹線 - 2018年4月17日  
-Handheld Digital Pets - 2021-01-27   
-Handheld Calculators - S01E09  
-  
-  
-  
 ----  
-  
-  
-薄膜農法 Film Farming - Japan's Top Inventions / NHK WORLD-JAPAN / Aug 19, 2021  
-https://youtu.be/3VDsguNyJ0c  
-2.15M subscribers  271,142 views     
-A Japanese farming technique using film shows potential for crop cultivation in arid regions and areas affected by soil degradation.  
-  
-	Hydrogel  
-	Crystallization  
-	Osmotic pressure  
-	Mori Yuichi, who invented film farming.  
-  
-  
-The Japanese polymer physicist Dr. Yuichi Mori, invented the technology of film farming. He developed a cultivation system startup company named Mebiol in 1995, based on this novel technology. In the early 1990s, world nations signed the Kyoto protocol considering the global warming phenomenon as an ecological hazard. 4 Apr 2022  
-  
-Film Farming, Making It Possible for Anyone to Farm Anywhere  
-  https://www.gov-online.go.jp/eng/publicity/book/hlj/html/202204/202204_10_en.html  
-	Mori Yuichi (chairman of Mebiol Inc.) shows how the plants extend their roots on the film surface · Fruit and vegetable cultivation using IMEC (intelligent membrane culture).  
-	IMEC makes it possible to cultivate crops without having to worry about pests, pathogens and soil pollution  
-  
-  
-Carbon Farming : A Climate Solution Under Our Feet - NHK WORLD PRIME / NHK WORLD-JAPAN /Mar 28, 2022   
-https://youtu.be/rvHJKqU-mZo  
-2.15M subscribers  928,743 views    
-00:00 – Opening  
-00:32 – From a NY organic farm  
-01:45 – Carbon farming: What is it?  
-03:03 – Regenerative agriculture: A Minnesota Case Study  
-06:04 – Ray Archuleta: Visually comparing soil health  
-12:19 – Gabe Brown: The 5 principles  
-19:14 – Shinano Takuro: Visualized rhizosphere  
-23:05 – Carbon farming around the world  
-23:42 – Toshimichi Yoshida: Our dear friend bacteria  
-38:20 – The '4 per 1000' Initiative  
-39:20 – Biochar: A Yamanashi Case Study  
-47:54 – Conclusion  
-Regenerative agriculture, also known as carbon farming, is one way people are taking action against the climate crisis, turning harmful carbon emissions in the atmosphere into nutrient rich soil or biochar and using it to farm organic and sustainable food.  
-Meet carbon farming pioneers like Gabe Brown in the US, Toshimichi Yoshida in Japan and more.  
-Watch more shows on SDGs on NHK WORLD-JAPAN!  
-  https://www3.nhk.or.jp/nhkworld/en/ondemand/special/sdgs/  
-Sustainable Development Goals are the keys to a brighter and better tomorrow. NHK WORLD-JAPAN's mission is to raise awareness of each of the 17 SDGs among viewers and encourage them to take action.  
-  
-----  
-  
-麵包機 Home Bread Makers - Japan's Top Inventions  
-Broadcast on January 8, 2020  
-  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200109/2072027/  
-	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, home bread makers. These bread makers, first released in Japan in 1987, allow you to bake fresh bread at home by simply adding the ingredients and pushing a button. With over 10 million units shipped to 26 countries and regions, they're beloved worldwide. This time, the little-known story behind the 3 years of hard baking work involved in their creation.  
-	The first model of the home bread maker  
-	A fresh loaf baked with the first model of the bread maker  
-	Recent home bread maker models  
-  
-  
-Home Bread Makers - NHK World Japan's Top Inventions   
-https://youtu.be/vmuINioKHrY  
-David Reis / 3 subscribers / 396 views / May 21, 2022  JAPAN  
-	The story of how a group of women and National-Panasonic invested the world's first automatic bread maker.  
-  
-麵包機初體驗 🍞| Panasonic SD-P104 💖 | Bread Maker 😋| Bread making｜吐司 / Sheeplover羊羊 /  Mar 14, 2020  
-https://youtu.be/jtiAy98fIgI  
-  
-  
-  
-----  
-  
-新幹線 Shinkansen Japan's Top Inventions FullHD 1080p NHK World  
-  https://youtu.be/suwirugb8oM  
-renewii / 3.52K subscribers / 2,371 views / May 14, 2020  
-	Minidocumentary about the creation of the World's fastest train: The Shinkansen.  
-	Recorded from the NHK World Satellite Feed at Full HD 1080p  
-	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen, sometimes called the bullet train, which set a new record for high-speed rail, 256km/h, in its trial runs. The inspiration for unlocking that incredible speed came from aerodynamic airplanes. Shinkansen technology is now being adopted around the world in places like the UK and Taiwan. This time, we discover the drama behind the creation of this high-speed invention.  
-  
-NHK WORLD-JAPAN 2018年4月17日 · Japan's Top Inventions 〜 Shinkansen 〜  
-April 19, Thurs. 0:30 / 6:30 / 12:30 / 18:30 (JST)  
-  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20180419/2072002/  
-	The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen. Discover the drama behind the creation of the bullet train.  
-  
-  
-Trains Evolving by Design / Japan Railway Journal 28m 00s  
-Broadcast on April 28, 2022 Available until April 28, 2025  
-    English中文（繁體）Português  
-  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/2049110/  
-	In recent years, the Japanese railway industry has seen the introduction of many unique trains designed by famous designers. These new trains were made possible thanks to rolling stock manufacturers and parts suppliers coming together to meet the new design challenges. Also, not only new trains are created, but existing trains are transformed, such as JR Kyushu's Nishi Kyushu Shinkansen (scheduled to open in the fall of 2022), produced by an industrial designer. See how new design elements are causing Japanese trains to evolve.  
-  
-  
-  
-----  
-  
   
 ----  
   
