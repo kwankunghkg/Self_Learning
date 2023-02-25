@@ -38,11 +38,15 @@ More quality content available on NHK WORLD-JAPAN!
 Robotic Exoskeletons /  
 蚊香 Mosquito Coils /  
 罐頭麵包 Canned Bread /  
+早產兒呼吸器 / 手術縫合針 / 手術顯微鏡支架 /  
+製藥設備 / 醫學模擬器 /  
+地雷清除機 / 水質淨化劑 /  
+教材學習法 / 冷凍保鮮裝置 /  
 廻轉壽司 Conveyor Belt Sushi /  
 麵包機 Home Bread Maker /  
 Juki 自動切線縫紉機 /  
 新幹線 Shinkansen /  
-... 
+...  
   
 ----  
   
