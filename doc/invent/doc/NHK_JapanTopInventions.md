@@ -1,5 +1,5 @@
   
-last update : 2023-02-26_0028(UTC+8)  
+last update : 2023-02-26_0334(UTC+8)  
 prev update : 2023-02-22_0000(UTC+8)  
   
 ----  
@@ -84,6 +84,12 @@ Juki 自動切線縫紉機 /
 20221224 修正帶 濾水介質   
 20230128 Automatic Ticket Gates Tool Setters  
   
+  
+----  
+  
+  https://en.wikipedia.org/wiki/List_of_Japanese_inventions_and_discoveries
+  https://computer.fandom.com/wiki/List_of_Japanese_inventions
+  
 ----  
   
 Japan's Top Inventions - ALoneArchivist  
@@ -105,6 +111,31 @@ Handheld Digital Pets - 2021-01-27
 Handheld Calculators - S01E09  
   https://youtu.be/CKTZ8VWcodw  
   
+日本顶级发明  
+  https://www.bilibili.com/video/BV1M4411k7NN/  
+  视频选集 (22)  
+    P1日本顶级发明：益生菌饮料    15:01  
+    P2日本顶级发明：杯装方便面    15:01  
+    P3日本顶级发明：防震手表    15:01  
+    P4日本顶级发明：水性纤维笔    15:01  
+    P5日本顶级发明：智能马桶盖    15:00  
+    P6日本顶级发明：电子游戏角色之吃豆人    15:00  
+    P7日本顶级发明：便携式音乐播放器    15:00  
+    P8日本顶级发明：方便面    15:00  
+    P9日本顶级发明：电子计算器    15:00  
+    P10日本顶级发明：化妆刷    15:00  
+    P11日本顶级发明：可折断式美工刀    15:00  
+    P12日本顶级发明：水族馆用亚克力板    15:00  
+    P13日本顶级发明：小型摩托车    15:00  
+    P14日本顶级发明：电动助力自行车    15:00  
+    P15日本顶级发明：退热贴    15:00  
+    P16日本顶级发明：永不松动的螺母    15:00  
+    P17日本顶级发明：可擦笔    15:00  
+    P18日本顶级发明：石英表    15:00  
+    P19Japan's Top Inventions - Video Game Character Pac-Man    15:00  
+    P20Japan's Top Inventions - Portable Music Players    15:00  
+    P21Japan's Top Inventions - Instant Ramen    15:01  
+    P22Japan's Top Inventions - Handheld Calculators    15:00  
   
 ----  
   
@@ -211,93 +242,120 @@ S01E02 Shinkansen / April 19, 2018
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time: the Shinkansen, sometimes called the bullet train, which set a new record for high-speed rail, 256km/h, in its trial runs. The inspiration for unlocking that incredible speed came from aerodynamic airplanes. Shinkansen technology is now being adopted around the world in places like the UK and Taiwan. This time, we discover the drama behind the creation of this high-speed invention.  
   
 S01E03 Automatic Rice Cookers / May 17, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190711/2072003/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, electric rice cookers, which create fluffy, great-tasting rice with the press of a button. Developed in Japan in 1955, these automated rice cookers keep growing in popularity: in 2016, exports hit a record high. In Asia and around the world, this invention plays an essential role in creating rice-based dishes. This time, the unknown story behind the birth of the electric rice cooker.  
   
 S01E04 Electronic Bidet Toilets / June 21, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190808/2072004/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. On this episode, electronic bidet toilets, which clean your bottom with a spray of warm water. On sale since 1980, some 40 million of these toilet seats have shipped, and are now sold in many countries and regions including the U.S. and China. But the creation of this high-tech, revolutionary product was anything but easy. This time, the dramatic tale behind electronic bidet toilets.  
   
 S01E05 Quartz Wristwatches / July 19, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200830/2072005/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, quartz wristwatches, which caused a "timepiece revolution" with their accurate timing. Built in Japan in 1969, the world's first quartz wristwatch drifted only 0.2 seconds a day, making it about 100 times more accurate than previous watches. Even now, 96% of watches around the world use the same system. We trace the drama behind the creation of this super-accurate timepiece.  
   
 S01E06 Instant Ramen / August 16, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200906/2072006/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, a product first produced in Japan in 1958: instant ramen. With over 100 billion servings eaten every year, this instant meal has become a worldwide staple. The inspiration for this invention came from a surprising source: the deep-fried Japanese dish known as tempura. This time, we bite into the story behind instant ramen, a food loved around the world.  
   
 S01E07 Portable Music Players / September 20, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20180920/2072007/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, the gadget that lets you enjoy music anytime, anywhere with just a pair of headphones: the portable music player. The world's first of these portable players was developed by a Japanese manufacturer in 1979. Listening to music on the go is now a part of daily life around the world. This time, the story of the invention that made it all possible.  
   
 S01E08 Gastrocameras / October 18, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200920/2072008/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time we focus on gastrocameras, which have led to a revolution in cancer treatment. The first gastrocamera, the predecessor of those now used by hospitals around the world, was developed in Japan in 1950. We probe the untold drama behind the creation of the gastrocamera and look into the technological evolution that continues today.  
   
 S01E09 Handheld Calculators / November 22, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20181122/2072009/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, we focus on electronic calculators. Pocket-sized calculators have become so common that everyone can have one, and are still used today. The world's first pocket-sized calculator was developed in Japan in 1972, and made calculators available to the general public for the first time. Let's discover the story behind its creation, including inspiration from a surprising source: bowling!  
   
 S01E10 Erasable Pens / December 20, 2018  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20181220/2072010/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, we feature erasable pens, which allow users to erase their writing just like with pencil. Released in 2006, these pens' usefulness has made them a hit: over 2 billion have been sold in some 100 countries and regions around the world. Discover the unknown story of these erasable pens, whose creation was inspired by the changing leaves of autumn.  
   
   
 Season 2  
   
 S02E01 Snap-Off Utility Knives / January 17, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190117/2072011/
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, we focus on utility knives whose blades, when they become dull, can be snapped off, revealing fresh blades underneath. These knives were invented in 1956 by a Japanese man who took his inspiration from both a "waste not, want not" philosophy and ... chocolate! We cut into the untold drama behind the creation of this revolutionary product, which changed the way the world thinks about utility knives.  
   
 S02E02 Acrylic Aquarium Panels / February 21, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190221/2072012/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, an invention used around the world: acrylic aquarium panels. The very first of those panels was born in Japan in 1969 -- and the distinctive techniques used to make it were inspired by a type of noodle eaten in Japan since times long past: udon! Dive into the story behind the dramatic birth of acrylic panels, which sparked an aquarium revolution, and see how they've continued to evolve.  
     
   
 S02E03 Makeup Brushes / March 21, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20201119/2072013/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, an essential part of any makeup kit: makeup brushes known in Japanese as fude. The very first of these brushes, now known as some of the best in the world, were created in Japan in 1981, and were inspired by the traditional fude used in Japanese calligraphy. We dive into the story behind the Japanese fude brushes that caused a revolution in the world of makeup.    
   
 S02E04 Compact Motorcycles / April 17, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190418/2072014/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, we take a ride on Japan's world-beloved compact motorcycles. Over 100 million of these revolutionary compact motorcycles have been produced to date. They were developed by Soichiro Honda, whose company, named after Honda himself, became world-renowned in a single generation. Join us as we ride into the unknown tale of this brilliant engineer's trailblazing compact motorcycles.    
   
 S02E05 Stay-Tight Fasteners / May 9, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190509/2072015/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, a product used in over 20 countries and regions: stay-tight fasteners, nuts used with bolts in railroads, bridges, towers, and more. When normal nuts experience vibration, they sometimes come loose. But stay-tight fasteners, developed in Japan in 1974, overcame this problem. Learn the dramatic story behind the nuts, including a surprising spot that inspired their creation: a shrine!    
   
 S02E06 Video Game Character / May 30, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200326/2072016/  
+  https://www.dailymotion.com/video/x869zzr  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, one of the world's most famous video game characters: Pac-Man. The iconic yellow ball with a mouth that gobbles up dots and runs away from ghosts was born in Japan in 1980, and holds the world record for "most successful coin-operated arcade game." Discover the backstory behind this iconic character, including how its shape was inspired by none other than pizza!    
   
 S02E07 Pedal Assist Electric Bicycles / June 19, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190620/2072017/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, pedal assist electric bicycles, which give you a helpful boost of power when you pedal and help you enjoy relaxed cycling even on steep hills. The first pedal assist electric bicycles were produced in 1993 in Japan, and these revolutionary inventions are now used and loved worldwide. We pedal into the little-known, behind-the-scenes story of how these bicycles were invented.    
   
 S02E08 Cooling Gel Sheets / July 10, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190711/2072018/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, cooling gel sheets, which can be applied to the forehead for cooling relief when you're feeling feverish. These sheets were developed in Japan in 1994, and were inspired by none other than a certain pub dish! The sheets are now sold in some 20 countries and regions, and about 400 million are used per year. Join us as we discover the little-known story behind Japan's cooling gel sheets.    
   
 S02E09 Fiber Tip Pens / August 7, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190808/2072019/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, fiber tip pens, invented by a Japanese stationery firm in 1963. These water-based pens improved on the firm's oil-based pens, whose ink feathered and bled. Thanks to early user Lyndon Johnson, 36th President of the United States, they became a hit. Some 2.2 billion have been produced and sold in over 100 countries and regions. This time, the little-known story behind fiber tip pens.    
   
 S02E10 Shock Resistant Wristwatches / August 21, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20190822/2072020/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, durable timepieces that don't break when dropped: shock resistant wristwatches. These unique watches were created by a Japanese firm in 1983, and are now available in 138 countries and regions. Over 100 million units have been shipped to date. Discover their surprising inspiration -- a child playing with a rubber ball in a park -- and more in the little-known story behind this invention.    
     
   
 S02E11 Cup Ramen / September 11, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20210218/2072021/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, the food you can eat anytime, anywhere, with no need for bowls or plates: Cup ramen. Invented by Momofuku Ando in an attempt to spread his instant ramen worldwide, Cup ramen has been sold in over 80 countries and regions to date. And an incredible 40 billion cups have been sold! This time, slurp up the secrets behind this hit cup-based Japanese invention.    
     
   
 S02E12 Probiotic Drinks / October 9, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20210814/2072022/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, probiotic drinks, now consumed in 40 countries and regions. They were created by Yakult founder Minoru Shirota, who succeeded in cultivating strong lactic acid bacteria that could survive digestive fluids. With the philosophy "a healthy intestinal tract leads to a long life," Shirota spread his probiotic drink far and wide. Join us and learn more about the story behind these drinks.    
   
 S02E13 Special Effects Monster Movie / October 23, 2019  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, the special effects movie that introduced the world to Japan's most famous monster: Godzilla. The franchise, which now spans 29 Japanese films and multiple Hollywood remakes, all started in 1954 with the help of special effects director Eiji Tsuburaya. Learn the little-known tale behind Godzilla's creation, plus the latest monster movie news!    
   
 S02E14 Umami Seasoning / November 13, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20191114/2072024/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, umami seasoning. Umami, one of the 5 basic tastes, was christened by chemist Kikunae Ikeda. Ikeda traced it to the glutamate found in kombu kelp dashi stock, an essential part of Japanese cuisine. The umami seasoning invented by Ikeda became a long-selling hit, and is now used in over 100 countries and regions. Discover the little-known tale of this hit culinary invention.    
   
 S02E15 Blue LEDs / November 27, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200702/2072025/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, blue LEDs, or light-emitting diodes. The world's first blue LEDs were created in 1989 by a research team at Nagoya University. These LEDs, now used in lightbulbs, smartphone screens, automobile headlights, and more sparked a lighting revolution. Discover the little-known story behind this Nobel Prize-winning invention.    
   
 S02E16 Spinning Top Toys / December 19, 2019  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20210821/2072026/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, spinning top toys, which have sold some 450 million units in over 80 countries and regions. Created by a Japanese firm in 1999, these tops, called Beyblades, are beloved by children worldwide. There was even a world championship held in Paris in 2018! This time, we take a spin into the story behind these toys, and learn how their creators were inspired by rock-paper-scissors.  
   
 Season 3  
     
   
 S03E01 Home Bread Makers / January 8, 2020  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200109/2072027/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, home bread makers. These bread makers, first released in Japan in 1987, allow you to bake fresh bread at home by simply adding the ingredients and pushing a button. With over 10 million units shipped to 26 countries and regions, they're beloved worldwide. This time, the little-known story behind the 3 years of hard baking work involved in their creation.    
   
 S03E02 Glow in the Dark Pigments / January 29, 2020  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200130/2072028/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, glow in the dark pigments, which absorb light to glow in the dark. A version of these pigments that contain no radioactive substances was invented in Japan in 1993. They're now used worldwide in products like watch faces and emergency signage. We learn the little-known story behind the pigments' creation, including how they were born from a company in danger of closing down.    
   
 S03E03 Emoji / February 12, 2020  
+  https://www3.nhk.or.jp/nhkworld/en/tv/topinventions/20200213/2072029/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, emoji, the ideograms like smileys, hearts and food that help add fun to text messages. Now used in messages and emails worldwide every day, the first set of emoji was created in Japan in 1999 for the relatively small cell phone screens of the time. Dive in and discover the little-known origin story of emoji.    
   
 S03E04 Miniature Video Cameras / March 11, 2020  
@@ -346,6 +404,7 @@ S04E01 Planetariums / January 14, 2021
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, planetariums, which realistically reproduce the look of the starry night sky. In 2014, a Japanese firm succeeded in creating a planetarium projector that displays each of the approximately 9,500 stars visible to the naked eye in incredible detail, including accurate coloring. We dive into the story behind the creation of that top invention and learn about the latest models.    
   
 S04E02 Handheld Digital Pets / January 28, 2021   
+  https://www3.nhk.or.jp/nhkworld/en/ondemand/video/2072044/  
     The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, the story behind the handheld digital pets known as Tamagotchi. Released by a Japanese toy maker in 1996, these toys let owners "raise" an on-screen digital pet, feeding it, putting it to bed, playing with it and more. We dig into the little-known story behind the creation of these handheld digital pets, a giant hit in some 30 countries and regions.    
   
 S04E03 Home Gaming Console / Smartphone Springs / May 15, 2021   
@@ -988,9 +1047,32 @@ FB社團: 超犀利裁縫
 ----  
   
   
+----  
   
   
 ----  
+  
+  
+----  
+  
+  
+  
+  
+----  
+  
+【日本科学技术】全系列（1）  
+  https://www.bilibili.com/video/BV18x411K7Bk/  
+  
+【日本科学技术】全系列（2）  
+  https://www.bilibili.com/video/BV18x411K7zF/  
+  
+  
+THE MAKING 日本科学技术 2~112  
+  https://www.bilibili.com/video/BV1vp411Z74j/  
+  
+  
+走遍亚洲之日本系列  
+  https://www.bilibili.com/video/BV13p411Z7EE/  
   
   
 ----  
