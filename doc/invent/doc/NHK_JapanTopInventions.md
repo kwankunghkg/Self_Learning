@@ -1,4 +1,9 @@
   
+last update : 2023-02-26_0028(UTC+8)  
+prev update : 2023-02-26_0028(UTC+8)  
+  
+----  
+  
 20230222_NHK_日本頂尖發明_Japan's Top Inventions  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/invent/doc/NHK_JapanTopInventions.md  
   
@@ -12,13 +17,12 @@ $ ls -al --time-style=full-iso  NHK*
 ----  
   
 Japan's Top Inventions  
-34 episodes  
+34 episodes (latest episodes online)  
   https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/topinventions/?type=tvEpisode&  
 Made in Japan! The fascinating stories and secrets behind hit Japanese products, plus parts and machines that boast the top share of niche markets.  
   
   
 NHK_日本頂尖發明_Japan's Top Inventions  
-共33集  
   https://www3.nhk.or.jp/nhkworld/zt/ondemand/program/video/topinventions/?type=tvEpisode&  
 日本製造！本節目主要介紹日本人氣產品背後引人入勝的故事和秘密，以及在利基市場佔據最大份額的元件和機器。節目的主持人是在日本發展的喜劇演員，傑森·丹尼爾森。  
   
