@@ -9,13 +9,6 @@ prev update : 2023-02-22_0000(UTC+8)
   
 ----  
   
-/cygdrive/c/_video_C/NHK/NHK_Japan's Top Inventions  
-$ ls -al --time-style=full-iso  NHK*  
--rwx---r-x+ 1 user Group 141075866 2021-12-12 06:36:13 +0800 "NHK_日本頂尖發明_Japan's Top Inventions_個人資料保護章 - .mp4"  
-  
-  
-----  
-  
 Japan's Top Inventions  
 34 episodes (latest episodes online)  
   https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/topinventions/?type=tvEpisode&  
@@ -833,6 +826,25 @@ The behind-the-scenes tales of hit products and creations from Japan: this is Ja
 ----  
   
   
+----  
+  
+  
+----  
+  
+/cygdrive/c/_video_C/NHK/NHK_Japan's Top Inventions  
+$ ls -al --time-style=full-iso  NHK*  
+-rwx---r-x+ 1 user Group 141075866 2021-12-12 06:36:13 +0800 "NHK_日本頂尖發明_Japan's Top Inventions_個人資料保護章 - .mp4"  
+  
+  
+----  
+  
+  
+----  
+  
+  
+----  
+  
+  
   
   
 ----  
@@ -1001,6 +1013,12 @@ Mazda Brought Back The Rotary Engine! / Engineering Explained /  Feb 17, 2023
   https://youtu.be/-3gzQVGEqF4
 3.43M subscribers / 894,721 views  
 The Wankel Rotary Engine Is Back In Production Thanks To Mazda!  
+  
+----  
+  
+  
+----  
+  
   
 ----  
   
