@@ -43,6 +43,11 @@ Juki 自動切線縫紉機 /
   
 ----  
   
+20180318 Conveyor Belt Sushi  
+20180419 Shinkansen  
+20180719 Quartz Wristwatches  
+20181122 Handheld Calculators  
+20200108 Home Bread Makers  
 20200312 小型攝影機  
 20200326 二維條碼   
 20200416 水質淨化劑  
@@ -94,9 +99,11 @@ Automatic Thread Trimming Sewing Machines - S2020E10
 Quartz Wristwatches - S01E05  
   https://youtu.be/1kWO_YVpqzs  
 Shinkansen 新幹線 - 2018年4月17日  
-Handheld Digital Pets - 2021-01-27   
+  https://youtu.be/ovknZZiD7Dg  
+Handheld Digital Pets - 2021-01-27  
+  https://youtu.be/aQJAspA0puQ  
 Handheld Calculators - S01E09  
-  
+  https://youtu.be/CKTZ8VWcodw  
   
   
 ----  
