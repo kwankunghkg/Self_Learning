@@ -42,6 +42,42 @@ Juki 自動切線縫紉機 /
   
 ----  
   
+20200312 小型攝影機  
+20200326 二維條碼   
+20200416 水質淨化劑  
+20200528 教材學習法  
+20200625 薄膜農法   
+20200723 手術顯微鏡支架   
+20200813 自動切線縫紉機   
+20200820 Robotic Exoskeletons  
+20200820 可穿戴式機器人   
+20200827 恐龍機器人  
+20200924 手掌靜脈辨識   
+20201022 冷凍保鮮裝置   
+20201126 瓶裝綠茶   
+20201224 個人資料保護章   
+20210114 天象儀   
+20210128 掌上型電子寵物   
+20210731 體脂計 行李架鏡子   
+20211030 壽司機器人 折射儀   
+20211120 拍照手機 電子顯微鏡   
+20211211 電波對時腕錶 包餡機   
+20220108 家用血壓計 測試圖案   
+20220129 數位板 葉柵（飛機零件）   
+20220219 筆記型電腦 純化分離系統   
+20220319 手術縫合針 製藥設備   
+20220326 高容量光碟 自動串刺機   
+20220430 早產兒呼吸器 電子束繪製系統   
+20220528 地雷清除機 線軌   
+20220625 罐頭麵包 自動化銅鑼燒機   
+20220730 蚊香 螺絲拆卸工具   
+20220903 脈衝式血氧濃度器 雞蛋分級包裝系統  
+20220924 無痛注射針 競技輪椅   
+20221029 魚群探測儀 醫學模擬器   
+20221126 鋰離子電池 隧道集塵機   
+20221224 修正帶 濾水介質   
+20230128 Automatic Ticket Gates Tool Setters  
+  
 ----  
   
 Japan's Top Inventions - ALoneArchivist  
@@ -472,7 +508,6 @@ The fascinating stories and secrets behind hit Japanese products, plus parts and
 一位日本麵包師傅於1996年開發了一種不易變質且保存期限較長的罐頭麵包，節目前半段將為您講述其發明背後的故事。後半段將介紹製作銅鑼燒的機器，銅鑼燒是一種用兩枚餅皮夾著紅豆沙內餡的日本甜點。這種獨特的機器還能用來製作其他夾心糕點，因此被世界各地廣為使用。  
   
   
-  
 Landmine Clearance Machines / Linear Guides / Japan's Top Inventions 28m 00s  
 Broadcast on May 28, 2022 Available until December 31, 2023  
   https://www3.nhk.or.jp/nhkworld/en/ondemand/video/2091013/  
@@ -690,14 +725,12 @@ The behind-the-scenes tales of hit products and creations from Japan: this is Ja
   
   
   
-Juki 自動切線縫紉機 / NHK 日本頂尖發明  
-  https://www3.nhk.or.jp/nhkworld/zt/ondemand/video/2072037/  
 Automatic Thread Trimming Sewing Machines / Japan's Top Inventions  
   https://www3.nhk.or.jp/nhkworld/en/ondemand/video/2072037/  
 Broadcast on August 13, 2020 Available until February 11, 2024 / 15m 00s  
 The behind-the-scenes tales of hit products and creations from Japan: this is Japan's Top Inventions. This time, a product used and loved in garment factories worldwide: automatic thread trimming sewing machines. Just press a foot pedal, and the threads attached to stitched pieces of cloth are automatically cut. From high-end brands to fast fashion, these machines are used by garment makers around the world. This time, we dive into the little-known story behind their invention.  
   
-自動切線縫紉機 / 日本頂尖發明 Japan's Top Inventions 15分00秒  
+Juki 自動切線縫紉機 / 日本頂尖發明 Japan's Top Inventions 15分00秒  
 播放日期 2020年8月13日 播放結束日期 2024年2月11日  
   https://www3.nhk.or.jp/nhkworld/zt/ondemand/video/2072037/  
 本集節目的主角是全世界服裝廠商都在使用和喜愛的產品：自動切線縫紉機。只要踩下踏板，縫製布料上的線就會被自動切斷。從高級品牌到快時尚，世界各地的服裝廠商都在使用這些縫紉機。本集節目中，我們將深入瞭解自動切線縫紉機發明背後鮮為人知的故事。  
@@ -821,10 +854,10 @@ Discover our tasty breadmaker recipes:
   https://experience-fresh.eu  
   
   
- Panasonic Breadmaker Recipe: Basic Bread / Panasonic Europe /  Oct 24, 2019  
+Panasonic Breadmaker Recipe: Basic Bread / Panasonic Europe / Oct 24, 2019  
 https://youtu.be/0KrfSisqBzY  
 9.88K subscribers / 36,945 views   
-Take this basic bread and make it more delicious and easy! The yeast will be automatically added at the perfect timing, so there’s no worries about messing up. Create the perfect, fluffy bread, every time, and bask in the soothing aroma as it bakes.  
+  Take this basic bread and make it more delicious and easy! The yeast will be automatically added at the perfect timing, so there’s no worries about messing up. Create the perfect, fluffy bread, every time, and bask in the soothing aroma as it bakes.  
 Go to the recipe: https://experience-fresh.panasonic.eu...   
   
   
@@ -938,8 +971,28 @@ FB社團: 超犀利裁縫
   
 ----  
   
+wish we can work for our own , forming many small high tech companies like Germany Austria Israel Japan Taiwan ...  
+  
+high tech is too ambitious , useful tech is good enough 😊  
   
 ----  
+  
+  
+----  
+  
+  
+----  
+  
+Death of The Derailleur? Honda’s Incredible Bicycle Gearboxes (All 3 Generations) / CYCLINGABOUT /  Feb 15, 2023  
+  https://youtu.be/sUB-_-BM7gg  
+187K subscribers / 1,220,082 views  
+Let's learn all about Honda's incredible bicycle gearbox drivetrains. 🏆  
+  
+  
+Mazda Brought Back The Rotary Engine! / Engineering Explained /  Feb 17, 2023
+  https://youtu.be/-3gzQVGEqF4
+3.43M subscribers / 894,721 views  
+The Wankel Rotary Engine Is Back In Production Thanks To Mazda!  
   
 ----  
   
