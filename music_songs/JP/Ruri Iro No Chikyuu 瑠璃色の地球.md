@@ -4,6 +4,8 @@
 松田聖子 瑠璃色の地球 （「この地球の日々たちへ」バージョン）  
 松田聖子 瑠璃色の地球 "Ruriiro no Chikyu" Seiko Matsuda 1986 / Noriko K  
 https://youtu.be/0S6D0razwYM  
+Seiko Matsuda 松田聖子 瑠璃色の地球 / Sony Music Japan / Nov 23, 2021  
+https://youtu.be/cn9_U4_P-I4  
 松田聖子「瑠璃色の地球」歌詞付き  
 https://youtu.be/wK0PkUagpeg  
   
