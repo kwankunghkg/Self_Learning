@@ -12,21 +12,30 @@ https://youtu.be/cn9_U4_P-I4
 松田聖子「瑠璃色の地球」歌詞付き  
 https://youtu.be/wK0PkUagpeg  
   
+----  
+  
 中森明菜 瑠璃色の地球 中文歌詞 / moon /  Jan 19, 2020  
 https://youtu.be/lS_u8dNa3r8  
+Ruri iro no chikyuu (瑠璃色の地球) Akina Nakamori - Performance in concert 2002-2003 / Felix Liu / May 4, 2017  
+https://youtu.be/20v8jTr_QIE  
+  
+----  
   
 瑠璃色の地球（「この地球の日々たちへ」バージョン） / 手嶌葵 / Jul 10, 2018  
 https://youtu.be/-2JQlrCneL4  
+  
+----  
   
 広瀬すず (广濑铃) 瑠璃色の地球 (深蓝色的地球) 気づいてよ《瑠璃色の地球 (深蓝色的地球) (《烟花》动画电影剧中歌)》  
 https://www.bilibili.com/video/BV1oW411x7ny/  
 烟花  电影2017年12月1日上映  
 炎炎夏日，茂下町的烟花大会即将举行。 就读于当地高中的及川奈砂（广濑铃 配音） 并未沉浸在愉快祥和的气氛之中，她即将随母亲（松隆子 配音） 搬家到另一个城市， 心中满是失落。 在某次即兴的游泳比赛时，奈砂击败同班同学岛田典道（菅田将晖 配音） 和安昙祐介（宫野真守 配音）。 随后她坦白喜欢祐介，希望烟花大会时能与对方一同游玩。 可是祐介、典道随后卷入和朋友们关于“烟花到底是圆是扁”的争论中...  
 https://www.bilibili.com/bangumi/play/ep312150  
-    
+  
+----  
+  
 2021.5 三宅由佳莉 瑠璃色の地球 横須賀音楽隊 【音楽】～未来を信じて～瑠璃色の地球／松田聖子（カヴァー・歌と吹奏楽・歌詞付き） / 防衛省 海上自衛隊 公式チャンネル / May 24, 2021  #海上自衛隊 #昭和歌謡 #横須賀音楽隊  
 https://youtu.be/gLNZwRgmlXA  
-  
 2022.10 【海上自衛隊音楽隊】圧倒的オーラ！三宅由佳莉さん瑠璃色の地球 Japan Maritime Self-Defense Force Band Song by Yukari Miyake / KIKU Channel JP /  Oct 29, 2022  
 https://youtu.be/zA_1f26GQGA  
   
