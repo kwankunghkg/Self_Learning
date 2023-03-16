@@ -1,6 +1,6 @@
 ----  
 瑠璃色の地球 Ruri Iro No Chikyuu (るり色の地球)   
-松田聖子 中森明菜 手嶌葵 廣瀨鈴 三宅由佳莉  
+松田聖子 中森明菜 Hayley Westenra 手嶌葵 廣瀨鈴 三宅由佳莉  
   
 ----  
   
@@ -18,6 +18,11 @@ https://youtu.be/wK0PkUagpeg
 https://youtu.be/lS_u8dNa3r8  
 Ruri iro no chikyuu (瑠璃色の地球) Akina Nakamori - Performance in concert 2002-2003 / Felix Liu / May 4, 2017  
 https://youtu.be/20v8jTr_QIE  
+  
+----  
+  
+Hayley Westenra - Ruri Iro No Chikyuu (るり色の地球) / vinthian / May 13, 2012  
+https://youtu.be/jBdyq7Kzoe8  
   
 ----  
   
