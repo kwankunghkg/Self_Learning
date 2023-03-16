@@ -1,6 +1,9 @@
+----  
 瑠璃色の地球 Ruri Iro No Chikyuu (るり色の地球)   
 松田聖子 中森明菜 手嶌葵 廣瀨鈴 三宅由佳莉  
-
+  
+----  
+  
 松田聖子 瑠璃色の地球 （「この地球の日々たちへ」バージョン）  
 松田聖子 瑠璃色の地球 "Ruriiro no Chikyu" Seiko Matsuda 1986 / Noriko K  
 https://youtu.be/0S6D0razwYM  
