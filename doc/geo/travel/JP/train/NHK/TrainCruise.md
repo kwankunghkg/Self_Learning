@@ -1,6 +1,6 @@
 
 BLOG_GitHub_NHK_TrainCruise_列車暢遊_20230707.txt  
-  https://github.com/kwankunghkg/Robotics/blob/main/ClassRoom/ActiveClass/readme.md  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/geo/travel/JP/train/NHK/TrainCruise.md  
 last update : 20230707_0508(UTC+8)  
 prev update : 20230707_0508(UTC+8)  
   
@@ -12,6 +12,7 @@ prev update : 20230707_0508(UTC+8)
 日本鐵道縱橫東西南北。  
 乘坐列車領略四季變換、人地各異的景觀，  
 遊訪名勝景點和鮮為人知的秘境。  
+  https://www3.nhk.or.jp/nhkworld/zt/ondemand/program/video/traincruise/?type=tvEpisode&  
   
 ----  
   
@@ -33,6 +34,12 @@ prev update : 20230707_0508(UTC+8)
   
 ----  
   
+京都丹後鐵道之傳說故事 / 列車暢遊 Train Cruise 44分00秒  
+  https://www3.nhk.or.jp/nhkworld/zt/ondemand/video/2068023/  
+播放日期 2021年5月1日 播放結束日期 2024年3月31日  
+    Englishမြန်မာဘာသာစကား中文（简体）中文（繁體）PortuguêsTiếng Việt  
+    #旅遊    #Train    #Kyoto    #Hyogo  
+	我們的旅程從京都中部的交通樞紐ー福知山出發，穿越山谷，到達北方的日本海和豐岡，並經過兵庫縣的邊界。京都丹後鐵路擁有眾多內裝迷人的車型，以及3條線路。我們被壯觀的海景吸引而駐足，從當地居民那瞭解文化及歷史，並造訪了傳說中出現的地方。  
   
   
 ----  
