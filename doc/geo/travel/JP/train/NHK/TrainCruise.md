@@ -1,7 +1,7 @@
 
 BLOG_GitHub_NHK_TrainCruise_列車暢遊_20230707.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/geo/travel/JP/train/NHK/TrainCruise.md  
-last update : 20230707_0508(UTC+8)  
+last update : 20230707_0539(UTC+8)  
 prev update : 20230707_0508(UTC+8)  
   
   
@@ -44,6 +44,12 @@ prev update : 20230707_0508(UTC+8)
   
 ----  
   
+充滿武士氣息的福島 春之容顏 / 列車暢遊 Train Cruise 44分00秒  
+  https://www3.nhk.or.jp/nhkworld/zt/ondemand/video/2068024/  
+播放日期 2021年6月5日 播放結束日期 2024年3月31日  
+    Englishမြန်မာဘာသာစကား中文（简体）中文（繁體）PortuguêsTiếng Việt  
+    #旅遊 #Train #Historic towns #Crafts #Spring #Cherry blossoms #Fukushima  
+	我們乘坐會津鐵道和JR只見線，穿越日本東北部，福島縣會津地區的群山。與我們一起從會津田島站出發，穿越一個冬季單日降雪量達 1 公尺的地區。春天，花朵隨著融雪而綻放，染上翠綠的山谷變得生氣蓬勃。會津以其湛藍陶器、及被認為能驅邪的傳統深紅工藝品而聞名。請享受會津的武士歷史及在初春風景。  
   
   
 ----  
@@ -69,9 +75,6 @@ English中文（繁體）PortuguêsTiếng Việt
   
 ----  
   
-  
-----  
-  
-  
+    
 ----
 End of File.  
