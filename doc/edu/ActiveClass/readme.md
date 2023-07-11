@@ -2,7 +2,8 @@
 BLOG_GitHub_ActiveClass_20230706.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/ActiveClass/readme.md  
   https://github.com/kwankunghkg/Robotics/blob/main/ClassRoom/ActiveClass/readme.md  
-last update : 20230708_1359(UTC+8)  
+last update : 20230711_1100(UTC+8)  
+prev update : 20230708_1359(UTC+8)  
 prev update : 20230707_0403(UTC+8)  
 prev update : 20230706_1959(UTC+8)  
 prev update : 20230706_1025(UTC+8)  
