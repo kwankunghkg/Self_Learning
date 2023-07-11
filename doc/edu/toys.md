@@ -1,7 +1,7 @@
   
 BLOG_GitHub_toys_20230711.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
-last update : 20230711_1132(UTC+8)  
+last update : 20230711_1136(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -81,6 +81,12 @@ to build list :
   
   
 ----  
+  
+[3:35 PM, 7/1/2023] : 
+剛才SDcard內有十集 上年播的 日劇 TokyoMER ，幾日前發現 四月 有續編電影版  
+再之前最喜歡 Code Blue，都是醫療急救劇  
+  
+  
   
 劇場版『TOKYO MER～走る緊急救命室～』主題歌 平井 大「Symphony」スペシャルムービー【4/28公開】 / 東宝MOVIEチャンネル /  Apr 16, 2023   
   https://youtu.be/uqPt5FSU1-8  
