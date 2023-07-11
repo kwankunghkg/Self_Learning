@@ -54,7 +54,7 @@ iClicker Student Mobile App
   
 ----
   
-How to Open Source & DIY a low cost system in Secondary Schools ?  
+## How to Open Source & DIY a low cost system in Secondary Schools ?  
 Rpi Pico W + LCD touch + NiMH/superCap + solar ??  
   
   
