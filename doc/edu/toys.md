@@ -1,7 +1,7 @@
   
 BLOG_GitHub_toys_20230711.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
-last update : 20230711_1146(UTC+8)  
+last update : 20230711_1203(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -109,10 +109,22 @@ https://youtu.be/qDxoBBw9ziU
   
 ----  
   
+LEGO+Blocky  
+  
+愛寫Code (1.5.2016) / ISD, Hong Kong SAR Government 香港特區政府新聞處 / May 1, 2016  
+https://youtu.be/7KX6NbgaUV8  
+72.2K subscribers 1,203 views  
+  
+Students demystify computer coding (1.5.2016) / ISD, Hong Kong SAR Government 香港特區政府新聞處 / May 1, 2016  
+https://youtu.be/_eBmWvX7xbo  
+72.2K subscribers 228 views  
   
   
 ----  
   
+BLOG_GitHub_ActiveClass_20230706.txt  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/ActiveClass/readme.md  
+  https://github.com/kwankunghkg/Robotics/blob/main/ClassRoom/ActiveClass/readme.md  
   
   
 ----  
