@@ -1,7 +1,7 @@
   
 BLOG_GitHub_toys_20230711.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
-last update : 20230711_1017(UTC+8)  
+last update : 20230711_1100(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -68,4 +68,25 @@ BLOG_GitHub_NHK_TrainCruise_列車暢遊_20230707.txt
   
   
 ----  
-End of File.
+  
+[200x]  
+how to ... prepare people who can build such ...  
+  
+to build list :  
+1. LEGO+Tamiya  
+2. Intel  
+3. IBM  
+4. Toyota  
+5. MIT  
+  
+  
+----  
+  
+  
+  
+----  
+  
+  
+  
+----  
+End of File.  
