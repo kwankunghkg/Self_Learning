@@ -1,7 +1,7 @@
   
 BLOG_GitHub_toys_20230711.txt  
-  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/geo/travel/JP/train/NHK/TrainCruise.md  
-last update : 20230711_1007(UTC+8)  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
+last update : 20230711_1017(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -68,4 +68,4 @@ BLOG_GitHub_NHK_TrainCruise_列車暢遊_20230707.txt
   
   
 ----  
-End of File.  
+End of File.
