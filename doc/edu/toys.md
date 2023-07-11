@@ -1,7 +1,8 @@
   
 BLOG_GitHub_toys_20230711.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
-last update : 20230711_1203(UTC+8)  
+last update : 20230711_1333(UTC+8)  
+prev update : 20230711_1203(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -105,11 +106,14 @@ https://youtu.be/qDxoBBw9ziU
 958K subscribers 508,655 views   
   
   
+[弾いてみよう] TOKYO MER ～走る緊急救命室 サントラBGM集 「絶対に諦めない!!」 救命ソング他 鈴木亮平 主演 TBS日曜劇場 / harmony piano / Aug 22, 2021  #TOKYOMER  
+https://youtu.be/TW1kL7p0swU    
+  
   
   
 ----  
   
-## LEGO+Blocky  
+## LEGO+Blockly  
   
 愛寫Code (1.5.2016) / ISD, Hong Kong SAR Government 香港特區政府新聞處 / May 1, 2016  
 https://youtu.be/7KX6NbgaUV8  
