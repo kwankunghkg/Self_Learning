@@ -97,9 +97,9 @@ to build list :
   
   
   
+## LEGO ER  
 東大LEGO部の全面協力による“LEGO ERカー”の制作がついに完成を迎えた。  
 夢の特殊車両を約1万個のLEGOで完全再現!?  
-  
 佐野勇斗も驚愕!? 世界に1つのレゴERカー! 東大LEGO部の本気すぎる再現率! 日曜劇場 『TOKYO MER～走る緊急救命室～』 / TBS公式 YouTuboo / Aug 19, 2021  
 https://youtu.be/qDxoBBw9ziU  
 958K subscribers 508,655 views   
