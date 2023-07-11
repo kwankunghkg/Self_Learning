@@ -1,7 +1,7 @@
   
 BLOG_GitHub_toys_20230711.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
-last update : 20230711_1100(UTC+8)  
+last update : 20230711_1132(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -78,6 +78,19 @@ to build list :
 3. IBM  
 4. Toyota  
 5. MIT  
+  
+  
+----  
+  
+劇場版『TOKYO MER～走る緊急救命室～』主題歌 平井 大「Symphony」スペシャルムービー【4/28公開】 / 東宝MOVIEチャンネル /  Apr 16, 2023   
+  https://youtu.be/uqPt5FSU1-8  
+1.28M subscribers 808,243 views   
+	平井 大 ベストアルバム「LOVE＋PEACE」  
+	  https://daihirai.lnk.to/LOVEandPEACE  
+  
+  
+----  
+  
   
   
 ----  
