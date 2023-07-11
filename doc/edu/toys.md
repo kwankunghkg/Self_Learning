@@ -1,7 +1,7 @@
   
 BLOG_GitHub_toys_20230711.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
-last update : 20230711_1136(UTC+8)  
+last update : 20230711_1146(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -88,11 +88,23 @@ to build list :
   
   
   
-劇場版『TOKYO MER～走る緊急救命室～』主題歌 平井 大「Symphony」スペシャルムービー【4/28公開】 / 東宝MOVIEチャンネル /  Apr 16, 2023   
+劇場版 『TOKYO MER～走る緊急救命室～』 主題歌 平井 大 「Symphony」 スペシャルムービー 【4/28公開】 / 東宝MOVIEチャンネル / Apr 16, 2023  
   https://youtu.be/uqPt5FSU1-8  
-1.28M subscribers 808,243 views   
+1.28M subscribers 808,243 views  
 	平井 大 ベストアルバム「LOVE＋PEACE」  
 	  https://daihirai.lnk.to/LOVEandPEACE  
+  
+  
+  
+  
+東大LEGO部の全面協力による“LEGO ERカー”の制作がついに完成を迎えた。  
+夢の特殊車両を約1万個のLEGOで完全再現!?  
+  
+佐野勇斗も驚愕!? 世界に1つのレゴERカー! 東大LEGO部の本気すぎる再現率! 日曜劇場 『TOKYO MER～走る緊急救命室～』 / TBS公式 YouTuboo / Aug 19, 2021  
+https://youtu.be/qDxoBBw9ziU  
+958K subscribers 508,655 views   
+  
+  
   
   
 ----  
