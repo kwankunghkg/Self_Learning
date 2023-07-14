@@ -1,8 +1,8 @@
   
 BLOG_GitHub_toys_20230711.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/toys.md  
-last update : 20230711_1333(UTC+8)  
-prev update : 20230711_1203(UTC+8)  
+last update : 20230714_1905(UTC+8)  
+prev update : 20230711_1333(UTC+8)  
 prev update : 20230711_1007(UTC+8)  
   
 ----  
@@ -126,9 +126,28 @@ https://youtu.be/_eBmWvX7xbo
   
 ----  
   
+開始寫程式的契機!? 被趕出家門竟學會 C++ ? 第一個程式語言都學些什麼? 工程師大調查! 2022 SITCON | 在地上滾的工程師 Nic / 在地上滾的工程師 Nic /  Nov 30, 2022  #工程師 #前端 #後端  
+https://youtu.be/ESjUACajP8c  
+116K subscribers 29,611 views   
+	大家起身動念寫程式的契機都是些什麼呢？  
+	第一次參加學生計算機年會 SITCON，看著這些莘莘學子們  
+	回想起自己學生時期也是熱情驅動興趣  
+	也來順便問問這個世代的學生，第一個碰到的程式語言都是些什麼呢？  
+	快來看看影片吧  
+  
+----  
+  
 BLOG_GitHub_ActiveClass_20230706.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/edu/ActiveClass/readme.md  
   https://github.com/kwankunghkg/Robotics/blob/main/ClassRoom/ActiveClass/readme.md  
+  
+  
+----  
+  
+  
+  
+----  
+  
   
   
 ----  
