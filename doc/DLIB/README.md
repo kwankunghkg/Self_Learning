@@ -1,4 +1,8 @@
   
+Digital LIBrary  
+https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md  
+  
+  
 BLOG_GitHub_DLIB_20230717.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md  
 last update : 20230717_1947(UTC+8)  
@@ -12,6 +16,7 @@ Digital LIBrary (kwankunghkg 199x-)
   
 [8:20 PM, 7/6/2023] :  
 got 30*(1Tbyte) cloud space to share videos (documentaries / drama / movies), would upload slowly (7Mbyte/s) Tbyte by Tbyte  
+Thank you very much for your kind help 🙏  
   
 would upload more after solving some software & hardware problems  
   
