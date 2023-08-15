@@ -5,7 +5,8 @@ https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md
   
 BLOG_GitHub_DLIB_20230717.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md  
-last update : 20230717_1947(UTC+8)  
+last update : 20230815_1642(UTC+8)  
+prev update : 20230717_1947(UTC+8)  
 prev update : 20230717_1947(UTC+8)  
   
 --------------------------------------------------  
@@ -43,7 +44,7 @@ _docu_PBS
   
   
 _docu_NHK  
-  
+  https://bit.ly/3KFGqGA  
   
 ----  
   
