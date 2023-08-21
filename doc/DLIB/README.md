@@ -21,6 +21,10 @@ Thank you very much for your kind help 🙏
   
 would upload more after solving some software & hardware problems  
   
+----  
+  
+filenames started with underscore are raw files with advertisement not cut away yet  
+  
   
 ----  
   
