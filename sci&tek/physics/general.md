@@ -133,9 +133,9 @@ Eigen's paradox
   
 Erwin Schrödinger  
   https://en.wikipedia.org/wiki/Erwin_Schr%C3%B6dinger  
-  https://en.wikipedia.org/wiki/What_Is_Life%3F
+  https://en.wikipedia.org/wiki/What_Is_Life%3F  
 What Is Life 海特勒倫敦力 海特勒-倫敦模型  
-	價鍵理論（Valence bond theory，VB理論） 是一種獲得薛定諤方程近似解的處理方法， 又稱為電子配對法。 價鍵理論與分子軌道理論是研究分子體系的兩種量子力學方法。 它是歷史上最早發展起來的處理多個化學鍵分子的量子力學理論。 價鍵理論主要描述分子中的共價鍵及共價結合，核心思想是電子配對形成定域化學鍵。 
+	價鍵理論（Valence bond theory，VB理論） 是一種獲得薛定諤方程近似解的處理方法， 又稱為電子配對法。 價鍵理論與分子軌道理論是研究分子體系的兩種量子力學方法。 它是歷史上最早發展起來的處理多個化學鍵分子的量子力學理論。 價鍵理論主要描述分子中的共價鍵及共價結合，核心思想是電子配對形成定域化學鍵。  
   https://en.wikipedia.org/wiki/Valence_bond_theory  
   https://en.wikipedia.org/wiki/Walter_Heitler  
   https://en.wikipedia.org/wiki/Fritz_London  
