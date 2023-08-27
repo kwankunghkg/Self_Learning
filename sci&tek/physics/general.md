@@ -1,11 +1,15 @@
+  
+BLOG_GitHub_PhysicsGeneral_20230827.txt  
+  
 Physics General  
   https://github.com/kwankunghkg/Self_Learning/blob/main/sci%26tek/physics/general.md
 
 ----------------------------------------  
   
 updated  
-last : 2023-08-25_13:47(UTC+8)  
-prev : 2023-08-25_14:06(UTC+8)  
+last : 2023-08-25_14:06(UTC+8)  
+prev : 2023-08-25_13:41(UTC+8)  
+  
   
 ----------------------------------------  
   
@@ -46,7 +50,7 @@ https://www.youtube.com/watch?v=G-H47jZoMBQ&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9
 回到時間的起點，那裏的物理性質很簡單，但謎題卻一點都不少  
 https://youtu.be/t66YM9nnG1k  
   
-光速到底是怎么回事，光速不变会推出什么奇怪的结论？ / 科學漫聊 /  Feb 23, 2023  科学漫聊  
+光速到底是怎么回事，光速不变会推出什么奇怪的结论？ / 科學漫聊 /  Feb 23, 2023    
 https://youtu.be/Xp3dQryAmaU  
 24.9K subscribers  71,908 views  
 宇宙速度有上限，这事真的很奇怪  
@@ -54,7 +58,7 @@ https://youtu.be/Xp3dQryAmaU
 回到「案發現場」，量子力學的詭異起源（無BGM版）  
 https://www.youtube.com/watch?v=YRBd8wqF8xs&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU&index=13  
 https://youtu.be/YRBd8wqF8xs  
-回到「案發現場」，量子力學的詭異起源 / 科學漫聊 /  Jul 1, 2023  科学漫聊  
+回到「案發現場」，量子力學的詭異起源 / 科學漫聊 /  Jul 1, 2023    
 https://www.youtube.com/watch?v=vOb5sLnRG8Y&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU&index=14  
 https://youtu.be/vOb5sLnRG8Y  
 25K subscribers  7,910 views  
@@ -92,13 +96,13 @@ https://youtu.be/KQicv6sBn4E
 24.8K subscribers  60,838 views  
   
   
-電子究竟是個什麽存在：經典理論與量子力學的最後一戰 / 科學漫聊 /  Premiered Jul 8, 2023  科学漫聊  
+電子究竟是個什麽存在：經典理論與量子力學的最後一戰 / 科學漫聊 / Jul 8, 2023  科学漫聊  
 https://youtu.be/tNHPRr9WHyk  
 24.8K subscribers  27,252 views  
 成為此頻道的會員並沒有福利，純屬用愛發電。如果你確實有能力又想支持一下也可以加入：   / @kxml  
   
   
-前沿物理哲學觀：量子引力理論的4個基本原則 / 科學漫聊 /  Premiered Jun 29, 2023  科学漫聊  
+前沿物理哲學觀：量子引力理論的4個基本原則 / 科學漫聊 / Jun 29, 2023  科学漫聊  
 https://youtu.be/FlTd3JbjD-A  
 25.2K subscribers  17,815 views  
   
