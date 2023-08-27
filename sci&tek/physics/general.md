@@ -107,6 +107,13 @@ https://youtu.be/FlTd3JbjD-A
 25.2K subscribers  17,815 views  
   
   
+亿万年前的宏伟计划：怎样让星辰之子仰望星空？ / 科學漫聊 /  Aug 25, 2023  
+https://www.youtube.com/watch?v=rotrdn5uFts&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+29.1K subscribers  9,769 views  
+	給你講一個故事，一個持續了138億年的、奇怪、宏大又浪漫的故事，故事的終點，是此刻的你和我。  
+  
+  
+  
   
   
 ----------------------------------------  
