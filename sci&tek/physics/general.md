@@ -7,7 +7,7 @@ Physics General
 ----------------------------------------  
   
 updated  
-last : 2023-08-25_16:58(UTC+8)  
+last : 2023-08-25_19:03(UTC+8)  
 prev : 2023-08-25_14:06(UTC+8)  
 prev : 2023-08-25_13:41(UTC+8)  
   
@@ -130,6 +130,28 @@ Eigen's paradox
 在量子物理學家眼中，生命的本質是什麽 / 科學漫聊 / Aug 8, 2023  科学漫聊  
   https://www.youtube.com/watch?v=xnKVvnxf5N0&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
 29.2K subscribers  226,765 views  
+  
+Erwin Schrödinger  
+  https://en.wikipedia.org/wiki/Erwin_Schr%C3%B6dinger  
+  https://en.wikipedia.org/wiki/What_Is_Life%3F
+What Is Life 海特勒倫敦力 海特勒-倫敦模型  
+	價鍵理論（Valence bond theory，VB理論） 是一種獲得薛定諤方程近似解的處理方法， 又稱為電子配對法。 價鍵理論與分子軌道理論是研究分子體系的兩種量子力學方法。 它是歷史上最早發展起來的處理多個化學鍵分子的量子力學理論。 價鍵理論主要描述分子中的共價鍵及共價結合，核心思想是電子配對形成定域化學鍵。 
+  https://en.wikipedia.org/wiki/Valence_bond_theory  
+  https://en.wikipedia.org/wiki/Walter_Heitler  
+  https://en.wikipedia.org/wiki/Fritz_London  
+  https://en.wikipedia.org/wiki/Entropy_and_life#Negative_entropy  
+  
+緣起緣滅散聚離  
+  
+  
+  
+生命起源的底層謎團：古怪的「自催化」化學 / 科學漫聊 / Aug 4, 2023  科学漫聊  
+  https://www.youtube.com/watch?v=yqwZDY0SYs8&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+29.2K subscribers  47,551 views  
+  
+  
+  
+  
   
   
 ----------------------------------------  
