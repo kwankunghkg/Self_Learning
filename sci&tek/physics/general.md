@@ -1,9 +1,9 @@
-  
+    
 BLOG_GitHub_PhysicsGeneral_20230827.txt  
   
 Physics General  
-  https://github.com/kwankunghkg/Self_Learning/blob/main/sci%26tek/physics/general.md
-
+  https://github.com/kwankunghkg/Self_Learning/blob/main/sci%26tek/physics/general.md  
+  
 ----------------------------------------  
   
 updated  
