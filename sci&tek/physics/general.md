@@ -7,7 +7,8 @@ Physics General
 ----------------------------------------  
   
 updated  
-last : 2023-08-25_14:06(UTC+8)  
+last : 2023-08-25_16:58(UTC+8)  
+prev : 2023-08-25_14:06(UTC+8)  
 prev : 2023-08-25_13:41(UTC+8)  
   
   
@@ -16,12 +17,12 @@ prev : 2023-08-25_13:41(UTC+8)
 尺度縮小 肚腩變大 科學漫聊  
   
 空間的秘密：宇宙大爆炸的一切想象都是錯的【上】   
-https://www.youtube.com/playlist?list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+  https://www.youtube.com/playlist?list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
   
   
   
-https://en.wikipedia.org/wiki/Riemannian_geometry  
-https://en.wikipedia.org/wiki/General_relativity  
+  https://en.wikipedia.org/wiki/Riemannian_geometry  
+  https://en.wikipedia.org/wiki/General_relativity  
   
   
   
@@ -29,7 +30,7 @@ https://en.wikipedia.org/wiki/General_relativity
 ----------------------------------------  
   
 讓我人生過得好一些的科學道理 / 科學漫聊 / Jun 25, 2023  
-https://youtu.be/Smm6ROlN9l8  
+  https://youtu.be/Smm6ROlN9l8  
 
 伯克森悖論 （Berkson's paradox）  
 	指人們的直覺觀察與實際上真實的條件概率和嚴謹的統計結果不相符，也就是說人們所發現的看似兩個相關的因素實際上根本無關。當存在抽樣誤差，被納入樣本的機率存在偏差時，就會出現這種情況。這一悖論由美國醫生和統計學家約瑟夫·伯克森於1946年提出。  
@@ -43,24 +44,24 @@ Happy Learning
 ----------------------------------------  
   
 空間到底是個什麽東西？ / 科學漫聊 /  Sep 5, 2022  科学漫聊  
-https://www.youtube.com/watch?v=G-H47jZoMBQ&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU&index=54  
+  https://www.youtube.com/watch?v=G-H47jZoMBQ&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
 24.8K subscribers  32,745 views  
 空間到底是什麽？它是承裝宇宙物質的容器？還是本身具有物理屬性的什麽東西？空間為什麽會變形？空間是可以無限細分的，還是可以量子化的呢？  
   
 回到時間的起點，那裏的物理性質很簡單，但謎題卻一點都不少  
-https://youtu.be/t66YM9nnG1k  
+  https://youtu.be/t66YM9nnG1k  
   
 光速到底是怎么回事，光速不变会推出什么奇怪的结论？ / 科學漫聊 /  Feb 23, 2023    
-https://youtu.be/Xp3dQryAmaU  
+  https://youtu.be/Xp3dQryAmaU  
 24.9K subscribers  71,908 views  
 宇宙速度有上限，这事真的很奇怪  
   
 回到「案發現場」，量子力學的詭異起源（無BGM版）  
-https://www.youtube.com/watch?v=YRBd8wqF8xs&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU&index=13  
-https://youtu.be/YRBd8wqF8xs  
+  https://www.youtube.com/watch?v=YRBd8wqF8xs&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+  https://youtu.be/YRBd8wqF8xs  
 回到「案發現場」，量子力學的詭異起源 / 科學漫聊 /  Jul 1, 2023    
-https://www.youtube.com/watch?v=vOb5sLnRG8Y&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU&index=14  
-https://youtu.be/vOb5sLnRG8Y  
+  https://www.youtube.com/watch?v=vOb5sLnRG8Y&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+  https://youtu.be/vOb5sLnRG8Y  
 25K subscribers  7,910 views  
   
 路易·德布羅意 Louis de Broglie / French physicist  
@@ -91,28 +92,57 @@ WKB近似 WKB approximation or WKB method . The name is an initialism for Wentze
   
   
 從薛定諤方程到狄拉克公式：幽靈般的電子自旋 / 科學漫聊 / Jul 4, 2023  科学漫聊  
-https://www.youtube.com/watch?v=KQicv6sBn4E&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU&index=12  
+  https://www.youtube.com/watch?v=KQicv6sBn4E&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
 https://youtu.be/KQicv6sBn4E  
 24.8K subscribers  60,838 views  
   
   
 電子究竟是個什麽存在：經典理論與量子力學的最後一戰 / 科學漫聊 / Jul 8, 2023  科学漫聊  
-https://youtu.be/tNHPRr9WHyk  
+  https://youtu.be/tNHPRr9WHyk  
 24.8K subscribers  27,252 views  
 成為此頻道的會員並沒有福利，純屬用愛發電。如果你確實有能力又想支持一下也可以加入：   / @kxml  
   
   
 前沿物理哲學觀：量子引力理論的4個基本原則 / 科學漫聊 / Jun 29, 2023  科学漫聊  
-https://youtu.be/FlTd3JbjD-A  
+  https://youtu.be/FlTd3JbjD-A  
 25.2K subscribers  17,815 views  
   
   
 亿万年前的宏伟计划：怎样让星辰之子仰望星空？ / 科學漫聊 /  Aug 25, 2023  
-https://www.youtube.com/watch?v=rotrdn5uFts&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+  https://www.youtube.com/watch?v=rotrdn5uFts&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
 29.1K subscribers  9,769 views  
 	給你講一個故事，一個持續了138億年的、奇怪、宏大又浪漫的故事，故事的終點，是此刻的你和我。  
   
   
+本質問題：生命進化的底層化學動力 / 科學漫聊 / Aug 11, 2023  科学漫聊  
+  https://www.youtube.com/watch?v=IjR4hFVBX6M&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+29.1K subscribers  24,160 views  
+  
+  https://en.wikipedia.org/wiki/Manfred_Eigen  
+Eigen's paradox  
+  https://en.wikipedia.org/wiki/Error_threshold_(evolution)#Eigen's_Paradox  
+  
+  https://en.wikipedia.org/wiki/Eigen  
+	Eigenvalues and eigenvectors  
+		German word eigen (cognate with the English word own) for 'proper', 'characteristic', 'own'.  
+	Eigen (C++ library)  
+  
+在量子物理學家眼中，生命的本質是什麽 / 科學漫聊 / Aug 8, 2023  科学漫聊  
+  https://www.youtube.com/watch?v=xnKVvnxf5N0&list=PL90U1rT_nZWGXmsHShvwt7TOHkj8k9raU  
+29.2K subscribers  226,765 views  
+  
+  
+----------------------------------------  
+  
+  https://en.wikipedia.org/wiki/QED  
+  https://en.wikipedia.org/wiki/Quantum_electrodynamics  
+  
+  
+----------------------------------------  
+  
+  
+  
+----------------------------------------  
   
   
   
