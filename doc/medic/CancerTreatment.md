@@ -1,8 +1,8 @@
     
-BLOG_GitHub_CancerTherapy_20230831.txt    
+BLOG_GitHub_CancerTreatment_20230831.txt    
     
-CancerTherapy    
-  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/medic/CancerTherapy.md    
+Cancer Treatment    
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/medic/CancerTreatment.md    
     
 ----------------------------------------    
     
