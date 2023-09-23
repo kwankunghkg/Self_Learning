@@ -5,7 +5,8 @@ https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md
   
 BLOG_GitHub_DLIB_20230717.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md  
-last update : 20230815_1642(UTC+8)  
+last update : 20230924_0027(UTC+8)  
+prev update : 20230815_1642(UTC+8)  
 prev update : 20230717_1947(UTC+8)  
 prev update : 20230717_1947(UTC+8)  
   
@@ -115,6 +116,19 @@ photos - 20160817_Munich_DeutschesSciTekMuseum
   
 ----  
   
+​凝觀八不 笑自在   
+日日好日 BrushUpLife  
+🙏🙏  
+  
+// 日日是好日 2018 東京劇場 黑木華 樹木希林 多部未華子   
+戲劇單打 https://www.youtube.com/live/lSI9hcj6XDg   
+越哥说电影 https://youtu.be/5faH869bYZc  
+  
+// 日劇 《重啟人生》 BRUSH UP LIFE ： 當生命歸零，你會抱著什麼心情踏出第一步？   
+  https://japandiary.tw/brushup-life/  
+  
+凝觀說說看 2023Sep18   
+  https://youtu.be/cr3UL5foD48    
   
   
 ----  
