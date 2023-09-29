@@ -2,19 +2,23 @@
 BLOG_GitHub_movie_Call Me Chihiro_我是千尋_20230929.md  
   
 Call Me Chihiro 我是千尋  
-  https://github.com/kwankunghkg/Robotics/blob/main/AI_ML/ref/race.md  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/drama_movie_anime/CallMeChihiro.md  
   
 ----------------------------------------  
   
 updated  
-last : 2023-09-29_19:13(UTC+8)  
+last : 2023-09-29_19:31(UTC+8)  
 prev : 2023-09-29_19:13(UTC+8)  
   
 ----------------------------------------  
   
+Call Me Chihiro 我是千尋 2023 movie  
   
+  _movie  
+  https://github.com/kwankunghkg/Self_Learning/tree/main/doc/DLIB  
   
-Call Me Chihiro 我是千尋 2023 ‧ Drama  
+  _movie  /  Call Me Chihiro 我是千尋  
+  https://ohanatkw-my.sharepoint.com/:f:/p/kwankung_07/EjksxNDxvl9LhPAE4Ymbd-4BcDpYvpPPis9BNsBCTl7GIw?e=HHACGU
   
 ----------------------------------------  
   
