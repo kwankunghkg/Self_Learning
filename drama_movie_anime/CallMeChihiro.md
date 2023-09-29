@@ -7,7 +7,7 @@ Call Me Chihiro 我是千尋
 ----------------------------------------  
   
 updated  
-last : 2023-09-29_19:31(UTC+8)  
+last : 2023-09-29_19:49(UTC+8)  
 prev : 2023-09-29_19:13(UTC+8)  
   
 ----------------------------------------  
@@ -58,6 +58,14 @@ https://youtu.be/vvF56VnuEMY
   
 ----------------------------------------  
   
+  
+看《千尋小姐》尋覓輕省人生 辣妹有村架純純情不再之作？ ｜戲劇單打｜【聰心直說】 鮑偉聰，草草一刀 2023/03/17 / 鮑偉聰 【聰心直說】 /  Streamed live on Mar 17, 2023  
+https://www.youtube.com/live/rCrwO1yTMcM  
+113K subscribers  25,469 views   
+《聰心直說》Facebook： https://www.facebook.com/alexliveonguts  
+  
+  
+  
 若孤独无解，是否能做只享受生活的无情者？给孤独之人的自愈电影 | 今泉力哉《千寻小姐》 / 是藤井树哇 /  Apr 3, 2023  
 https://youtu.be/sIRDnpZlx98  
 69.7K subscribers  81,221 views   
@@ -83,12 +91,6 @@ https://youtu.be/AhVCmg_DVBo
 1.17K subscribers  4,087 views   
 	#2023最新电影		#千寻小姐		#日本电影 		#漫改电影		  
   
-  
-  
-看《千尋小姐》尋覓輕省人生 辣妹有村架純純情不再之作？ ｜戲劇單打｜【聰心直說】 鮑偉聰，草草一刀 2023/03/17 / 鮑偉聰 【聰心直說】 /  Streamed live on Mar 17, 2023  
-https://www.youtube.com/live/rCrwO1yTMcM  
-113K subscribers  25,469 views   
-《聰心直說》Facebook： https://www.facebook.com/alexliveonguts  
   
   
   
