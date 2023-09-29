@@ -142,6 +142,9 @@ https://youtu.be/XxSsSKtQuqI
 	https://www.jvcmusic.co.jp/-/Linkall/...  
   
   
+----------------------------------------  
+  
+  
   
 愛の太陽 くるり 作詞/作曲：岸田繁 編曲：くるり 電影 : 我是千尋.千尋小姐(ちひろさん)主題曲 主演:有村架純.豐嶋花.嶋田鐵太 附日.中歌詞 / Steven Dior Classic Music Channel / Apr 2, 2023  #くるり #ちひろさん  
 https://youtu.be/Lw34_Ojovoc  
