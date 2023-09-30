@@ -7,7 +7,7 @@ Call Me Chihiro 我是千尋
 ----------------------------------------  
   
 updated  
-last : 2023-09-30_14:49(UTC+8)  
+last : 2023-09-30_14:59(UTC+8)  
 prev : 2023-09-29_19:49(UTC+8)  
 prev : 2023-09-29_19:13(UTC+8)  
   
@@ -71,9 +71,11 @@ https://www.youtube.com/live/rCrwO1yTMcM
   
   
   
-影評／Netflix《我是千尋》為何劇情平淡，看完後勁超強？電影3大成功之處，打破日本人際潛規則  / 方格子 Vocus / 2023-03-09    
-  https://www.storm.mg/lifestyle/4750380?mode=whole    
+影評／Netflix《我是千尋》為何劇情平淡，看完後勁超強？電影3大成功之處，打破日本人際潛規則  / 方格子 Vocus / 2023-03-09  
+  https://www.storm.mg/lifestyle/4750380?mode=whole  
   
+漂泊的現代人|《我是千尋》不負責任感想 / 菜有蟲 / 2023/03/02  
+  https://vocus.cc/article/63ff6e29fd89780001dc06cf  
   
   
   
