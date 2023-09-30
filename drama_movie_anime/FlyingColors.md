@@ -7,7 +7,7 @@ Flying Colors 墊底辣妹 奇蹟補習社
 ----------------------------------------  
   
 updated  
-last : 2023-09-30_15:37(UTC+8)  
+last : 2023-09-30_16:57(UTC+8)  
 prev : 2023-09-29_23:59(UTC+8)  
   
 ----------------------------------------  
@@ -42,7 +42,7 @@ https://youtu.be/APF7YkPD-XQ
   _movie  
   https://github.com/kwankunghkg/Self_Learning/tree/main/doc/DLIB  
   
-  _movie  /  Flying Colors 墊底辣妹  
+  _movie  /  Flying Colors 墊底辣妹 奇蹟補習社  
   https://ohanatkw-my.sharepoint.com/:f:/p/kwankung_07/ErmaTTfmt1JHkzGy7r7_vP4BiITgL-5xiMSD1IupVs8ugg?e=XXaVyb  
   
   
