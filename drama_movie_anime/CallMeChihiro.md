@@ -7,7 +7,8 @@ Call Me Chihiro 我是千尋
 ----------------------------------------  
   
 updated  
-last : 2023-09-29_19:49(UTC+8)  
+last : 2023-09-30_14:49(UTC+8)  
+prev : 2023-09-29_19:49(UTC+8)  
 prev : 2023-09-29_19:13(UTC+8)  
   
 ----------------------------------------  
@@ -66,6 +67,14 @@ https://youtu.be/vvF56VnuEMY
 https://www.youtube.com/live/rCrwO1yTMcM  
 113K subscribers  25,469 views   
 《聰心直說》Facebook： https://www.facebook.com/alexliveonguts  
+  
+  
+  
+  
+影評／Netflix《我是千尋》為何劇情平淡，看完後勁超強？電影3大成功之處，打破日本人際潛規則  / 方格子 Vocus / 2023-03-09    
+  https://www.storm.mg/lifestyle/4750380?mode=whole    
+  
+  
   
   
 ----------------------------------------  
