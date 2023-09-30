@@ -1,13 +1,13 @@
   
 BLOG_GitHub_movie_Flying Colors_墊底辣妹_20230929.md  
   
-Flying Colors 墊底辣妹  
+Flying Colors 墊底辣妹 奇蹟補習社  
   https://github.com/kwankunghkg/Self_Learning/blob/main/drama_movie_anime/FlyingColors.md  
   
 ----------------------------------------  
   
 updated  
-last : 2023-09-29_23:59(UTC+8)  
+last : 2023-09-30_15:37(UTC+8)  
 prev : 2023-09-29_23:59(UTC+8)  
   
 ----------------------------------------  
@@ -29,6 +29,11 @@ https://youtu.be/APF7YkPD-XQ
 	该片由土井裕泰執導、有村架純主演  
   
   
+----------------------------------------  
+  
+  
+[日劇] (J2)《奇蹟補習社》[全1集]【粵語】[720P][HDTV-MP4][2021-8-9]  
+  http://www2.tvboxnow.com/viewthread.php?tid=5197916&extra=&page=1  
   
   
   
