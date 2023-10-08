@@ -1,13 +1,13 @@
   
-Digital LIBrary  
-https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md  
-  
-  
 BLOG_GitHub_DLIB_20230717.txt  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/README.md  
-last update : 20230924_0027(UTC+8)  
+  
+  
+Digital LIBrary  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/    
+last update : 20231009_0609(UTC+8)  
+prev update : 20230924_0027(UTC+8)  
 prev update : 20230815_1642(UTC+8)  
-prev update : 20230717_1947(UTC+8)  
 prev update : 20230717_1947(UTC+8)  
   
 --------------------------------------------------  
@@ -129,6 +129,27 @@ photos - 20160817_Munich_DeutschesSciTekMuseum
   
 凝觀說說看 2023Sep18   
   https://youtu.be/cr3UL5foD48    
+  
+  
+----  
+  
+取經渡眾 八不知定   @babujushi  
+色相皆空 大道至簡  
+「從科學看佛學」  
+「根本佛教解脫道論」  
+  
+  
+  
+----  
+  
+修煉  
+知智一刻功 (靠自己)  
+誠善一世功 (靠榜樣)  
+
+  
+  
+----  
+  
   
   
 ----  
