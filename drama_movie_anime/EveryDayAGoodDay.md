@@ -8,7 +8,7 @@ Every Day A Good Day 日日是好日
   
 updated  
 last : 2023-10-08_09:09(UTC+8)  
-prev : 2023-10-08_09:09(UTC+8)  
+prev : 2023-10-08_16:13(UTC+8)  
   
 ----------------------------------------  
   
@@ -18,12 +18,13 @@ Every Day A Good Day 日日是好日 2018 movie
   https://github.com/kwankunghkg/Self_Learning/tree/main/doc/DLIB  
   
   _movie  /  Every Day A Good Day 日日是好日 2018  
-  https://ohanatkw-my.sharepoint.com/:f:/p/kwankung_07/EjksxNDxvl9LhPAE4Ymbd-4BcDpYvpPPis9BNsBCTl7GIw?e=HHACGU
+  https://ohanatkw-my.sharepoint.com/:f:/p/kwankung_07/EoiMOXhaZ29IszToQxhe7kwBeAQqY3J0itAXvIrUaxTjow?e=oaMwZ3  
+  
   
   
 ----------------------------------------  
   
-近來發現很多日劇對化解家庭關係很有意思  
+// 近來發現很多日劇對化解家庭關係很有意思 //  
   
   
 ----------------------------------------  
