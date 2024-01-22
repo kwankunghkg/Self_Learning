@@ -89,7 +89,8 @@ _music
 photos - 20160817_Munich_DeutschesSciTekMuseum  
   https://bit.ly/46UEkw6  
   
-因時間倉促，以上照片祇及館內少部份，而主要為陶瓷玻璃半導體等材料科學發展史。  
+因because時間time倉促hurry，以上above照片photo祇only及cover館site內inside少few部份portion，而while主要major為are陶瓷ceramic玻璃glass半semi導體conductor等etc材料material科學science發展development史history。  
+  
   https://en.wikipedia.org/wiki/Deutsches_Museum  
   
   
