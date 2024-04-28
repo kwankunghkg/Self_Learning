@@ -221,6 +221,10 @@ Phenolphthalein is often used as an indicator in acid–base titrations. For thi
   
 ----------------------------------------  
   
+Amber (琥珀)  
+  https://en.wikipedia.org/wiki/Amber  
+  
+  
   
   
 ----------------------------------------  
