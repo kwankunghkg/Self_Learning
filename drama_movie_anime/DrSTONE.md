@@ -51,6 +51,17 @@ Digital LIBrary
   
   
   
+----------------------------------------  
+  
+recently a Japanese animation is being broadcasted "Dr. STONE" , which introduces the development of various technologies along human civilization, very interesting drama series  
+  
+yesterday night (season 3 episode 4) talked about mechanism of CRT / crystal oscillator / radar / sonar  
+  
+  
+  
+  
+----------------------------------------  
+  
   
   
 ----------------------------------------  
