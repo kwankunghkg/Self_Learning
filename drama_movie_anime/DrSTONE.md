@@ -71,11 +71,11 @@ yesterday night (season 3 episode 4) talked about mechanism of CRT / crystal osc
   
 ----------------------------------------  
   
-酸鹼指示劑（Acid-base indicator）  
+酸鹼指示劑 （Acid-base indicator）  
   https://en.wikipedia.org/wiki/PH_indicator  
   
   
-通用指示劑（英語：Universal indicator）  
+通用指示劑 （Universal indicator）  
   https://en.wikipedia.org/wiki/Universal_indicator  
   
   
@@ -93,17 +93,17 @@ Phenolphthalein is often used as an indicator in acid–base titrations. For thi
   
   
   
-甲基橙（英語：Methyl orange）  
+甲基橙 （Methyl orange）  
   https://en.wikipedia.org/wiki/Methyl_orange  
   
   
   
-溴百里酚藍（英語：Bromothymol blue）  
+溴百里酚藍 （Bromothymol blue）  
   https://en.wikipedia.org/wiki/Bromothymol_blue  
   
   
   
-甲基紫（methyl violet），俗稱龍膽紫、苯胺紫、紫藥水，是一系列同類的有機化合物，是副品紅的四、五、六甲基衍生物（副品紅鹼）的混合物。可作為染料、酸鹼指示劑、消毒劑，稀釋後可用作外用藥品。而不同比例的衍生物混合，可以製作出一系列不同深淺的紫色染料。一般來說，混合物的甲基比例愈多，染料的顏色亦較藍。  
+甲基紫 （methyl violet），俗稱龍膽紫、苯胺紫、紫藥水，是一系列同類的有機化合物，是副品紅的四、五、六甲基衍生物（副品紅鹼）的混合物。可作為染料、酸鹼指示劑、消毒劑，稀釋後可用作外用藥品。而不同比例的衍生物混合，可以製作出一系列不同深淺的紫色染料。一般來說，混合物的甲基比例愈多，染料的顏色亦較藍。  
   https://en.wikipedia.org/wiki/Methyl_violet  
   
   
@@ -113,7 +113,7 @@ Phenolphthalein is often used as an indicator in acid–base titrations. For thi
   
 ----------------------------------------  
   
-Perseus (珀爾修斯) 珀爾修斯，或譯柏修斯（希臘語：Περσεύς；拉丁文：Perseus），是希臘神話中宙斯和達那厄的兒子。  
+Perseus (珀爾修斯) 珀爾修斯，或譯柏修斯 （希臘語：Περσεύς；拉丁文：Perseus）， 是希臘神話中宙斯和達那厄的兒子。  
   https://en.wikipedia.org/wiki/Perseus  
   
   
