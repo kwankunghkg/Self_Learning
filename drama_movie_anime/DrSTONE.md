@@ -5,7 +5,7 @@ BLOG_GitHub_anime_DrSTONE_20240428.md
 ----------------------------------------  
   
 #### updated  
-last : 2024-04-28_12:24(UTC+8)  
+last : 2024-04-28_13:00(UTC+8)  
 prev : 2024-04-28_11:39(UTC+8)  
 prev : 2024-04-28_07:52(UTC+8)  
   
@@ -37,8 +37,13 @@ Dr. STONE 第三季
   
 ----------------------------------------  
   
-DLIB / _anime / Dr.STONE_新石紀  
+DLIB / _anime / Dr.STONE_新石紀 / 粵日 CanJap ChT  
   https://bit.ly/3JGjKoJ  
+  
+  
+  
+Dr.STONE 新石紀 第三季 【全22集】 日 Jap ChT  
+  https://myself-bbs.com/thread-49501-1-1.html  
   
   
   
