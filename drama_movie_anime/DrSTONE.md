@@ -5,7 +5,8 @@ BLOG_GitHub_anime_DrSTONE_20240428.md
 ----------------------------------------  
   
 #### updated  
-last : 2024-04-28_11:39(UTC+8)  
+last : 2024-04-28_12:24(UTC+8)  
+prev : 2024-04-28_11:39(UTC+8)  
 prev : 2024-04-28_07:52(UTC+8)  
   
 ----------------------------------------  
@@ -95,6 +96,9 @@ Phenolphthalein is often used as an indicator in acid–base titrations. For thi
   
   
 ----------------------------------------  
+  
+Perseus (珀爾修斯) 珀爾修斯，或譯柏修斯（希臘語：Περσεύς；拉丁文：Perseus），是希臘神話中宙斯和達那厄的兒子。  
+  https://en.wikipedia.org/wiki/Perseus  
   
   
   
