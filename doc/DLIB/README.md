@@ -5,7 +5,8 @@ BLOG_GitHub_DLIB_20230717.txt
   
 Digital LIBrary  
   https://github.com/kwankunghkg/Self_Learning/blob/main/doc/DLIB/    
-last update : 20231009_0609(UTC+8)  
+last update : 20240428_0810(UTC+8)  
+prev update : 20231009_0609(UTC+8)  
 prev update : 20230924_0027(UTC+8)  
 prev update : 20230815_1642(UTC+8)  
 prev update : 20230717_1947(UTC+8)  
@@ -60,6 +61,10 @@ _docu_NHK
 _drama  
   https://bit.ly/3NUbO50  
   
+_drama_anime  
+  https://bit.ly/3JGjKoJ  
+  
+  
   
 _movie  
   https://bit.ly/44zjJMg  
@@ -89,8 +94,7 @@ _music
 photos - 20160817_Munich_DeutschesSciTekMuseum  
   https://bit.ly/46UEkw6  
   
-因because時間time倉促hurry，以上above照片photo祇only及cover館site內inside少few部份portion，而while主要major為are陶瓷ceramic玻璃glass半semi導體conductor等etc材料material科學science發展development史history。  
-  
+因時間倉促，以上照片祇及館內少部份，而主要為陶瓷玻璃半導體等材料科學發展史。  
   https://en.wikipedia.org/wiki/Deutsches_Museum  
   
   
