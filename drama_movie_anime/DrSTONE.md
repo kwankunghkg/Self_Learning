@@ -5,9 +5,8 @@ BLOG_GitHub_anime_DrSTONE_20240428.md
 ----------------------------------------  
   
 #### updated  
-last : 2024-04-29_07:37(UTC+8)  
+last : 2024-04-29_07:49(UTC+8)  
 last : 2024-04-28_13:00(UTC+8)  
-prev : 2024-04-28_11:39(UTC+8)  
 prev : 2024-04-28_07:52(UTC+8)  
   
 ----------------------------------------  
@@ -65,7 +64,7 @@ recently a Japanese animation is being broadcasted "Dr. STONE" , which introduce
   
 yesterday night (season 3 episode 4) talked about mechanism of CRT / crystal oscillator / radar / sonar  
   
-  
+Science + 三國演義  
   
   
 ----------------------------------------  
