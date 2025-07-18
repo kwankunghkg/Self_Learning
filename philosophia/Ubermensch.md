@@ -23,7 +23,7 @@ Nietzsche : God is Dead...
 ----------------------------------------  
   
 2001 A Space Odyssey Opening / il con / Sep 22, 2010  
-https://youtu.be/e-QFj59PON4  
+  https://youtu.be/e-QFj59PON4  
   
   
   
@@ -36,7 +36,7 @@ Also sprach Zarathustra (Tone poem by Richard Strauss)
   
   
 Richard Strauss finds his Nietzsche. Episode 13 - Also Sprach Zarathustra by Richard Strauss. / Classics Explained / Jan 5, 2021  
-https://youtu.be/9VMxtM7lXdg  
+  https://youtu.be/9VMxtM7lXdg  
   
   
   
@@ -50,7 +50,12 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
   
 The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 超級歪 SuperY / Feb 10, 2021  
-https://youtu.be/1wBD0UPeH88  
+  https://youtu.be/1wBD0UPeH88  
+  
+  
+  
+2001: A Space Odyssey docking sequence - Blue Danube / Manfi123 / Jan 5, 2010  
+  https://youtu.be/SpvOUnz4T7Q  
   
   
   
@@ -73,12 +78,12 @@ https://youtu.be/1wBD0UPeH88
   
   
 R. Strauss: Also sprach Zarathustra, Op. 30: I. Prelude. Sonnenaufgang / Berlin Philharmonic Orchestra - Topic /  Jul 30, 2018  
-https://youtu.be/exveTEjJa5E  
+  https://youtu.be/exveTEjJa5E  
   
   
   
 Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalamansispeed / Aug 19, 2023  #nietzsche #classicalmusic #zarathustra  
-https://youtu.be/HXqtFjeI07g  
+  https://youtu.be/HXqtFjeI07g  
 989 subscribers / views //  
 	Richard Georg Strauss (11 June 1864 – 8 September 1949) was a German composer and conductor best known for his tone poems and operas. Considered a leading composer of the late Romantic and early modern eras, he has been described as a successor of Richard Wagner and Franz Liszt. Along with Gustav Mahler, he represents the late flowering of German Romanticism, in which pioneering subtleties of orchestration are combined with an advanced harmonic style.  
 	"Also sprach Zarathustra" is a symphonic poem composed by Richard Strauss in 1896. It is inspired by Friedrich Nietzsche's philosophical novel of the same name, which explores the idea of the eternal recurrence of all events. The music of this symphonic piece is divided into a series of sections, each depicting a different aspect of Nietzsche's work.  
