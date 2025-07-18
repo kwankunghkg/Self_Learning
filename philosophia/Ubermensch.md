@@ -62,6 +62,22 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
 ----------------------------------------  
   
+新類型人...  
+Gundam theme song  
+Mobile Suit Gundam (1979) Opening  
+  https://youtu.be/ZszGvGAR5NU  
+  
+Mobile Suit Gundam Openings (1979-2025) / by DefinitelyNotHere  
+  https://www.youtube.com/playlist?list=PLJFMcRYOCD5xh6DhuHrTu2Y89FjY3eJra  
+  
+  
+----------------------------------------  
+  
+  
+  
+----------------------------------------  
+  
+  
   
 ----------------------------------------  
   
