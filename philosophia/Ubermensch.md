@@ -37,6 +37,7 @@ Also sprach Zarathustra (Tone poem by Richard Strauss)
   
 Richard Strauss finds his Nietzsche. Episode 13 - Also Sprach Zarathustra by Richard Strauss. / Classics Explained / Jan 5, 2021  
   https://youtu.be/9VMxtM7lXdg  
+	Anxious? Soul-searching? Existential? What better tonic than Richard Strauss's Also Sprach Zarathustra, a tone poem based on the life-affirming philosophies of Nietzsche!  
   
   
   
@@ -83,13 +84,14 @@ The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genea
   
   
   
+  
+  
 R. Strauss: Also sprach Zarathustra, Op. 30: I. Prelude. Sonnenaufgang / Berlin Philharmonic Orchestra - Topic /  Jul 30, 2018  
   https://youtu.be/exveTEjJa5E  
   
   
   
-Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalamansispeed / Aug 19, 2023  #nietzsche #classicalmusic #zarathustra  
-  https://youtu.be/HXqtFjeI07g  
+Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalamansispeed / Aug 19, 2023 / #nietzsche #classicalmusic #zarathustra    https://youtu.be/HXqtFjeI07g  
 989 subscribers / views //  
 	Richard Georg Strauss (11 June 1864 – 8 September 1949) was a German composer and conductor best known for his tone poems and operas. Considered a leading composer of the late Romantic and early modern eras, he has been described as a successor of Richard Wagner and Franz Liszt. Along with Gustav Mahler, he represents the late flowering of German Romanticism, in which pioneering subtleties of orchestration are combined with an advanced harmonic style.  
 	"Also sprach Zarathustra" is a symphonic poem composed by Richard Strauss in 1896. It is inspired by Friedrich Nietzsche's philosophical novel of the same name, which explores the idea of the eternal recurrence of all events. The music of this symphonic piece is divided into a series of sections, each depicting a different aspect of Nietzsche's work.  
@@ -98,11 +100,12 @@ Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalama
 	The music then rises to a powerful climax, as the entire orchestra joins in a triumphant fanfare. Brass instruments take the lead, showcasing their majestic and regal qualities. This climactic moment represents the radiant sunlight flooding the landscape, filling the world with energy and vitality.  
 	Following the climax, the music gradually subsides, with the strings and woodwinds playing a serene and enchanting melody. The celestial atmosphere is evoked by the ethereal sounds of the harp and the delicate interplay of the different instrumental voices. The section concludes with a final expression of the rising sun, leaving a sense of wonder and awe lingering in the air.  
 	Overall, "Sonnenaufgang" from Richard Strauss' "Also sprach Zarathustra" captures the essence of a new day dawning, bringing forth a feeling of renewal, transformation, and the eternal cycle of life. The piece showcases Strauss' masterful orchestration skills, utilizing a variety of instrumental colors and textures to portray the beauty and grandeur of nature's awakening.  
-	Music :  
-	Creative Commons ► Attribution 3.0 Unported ► (CC BY 3.0)  
-	Conducted by Philip Milman ► https://pmmusic.pro/  
-	#classicalmusic #nietzsche #zarathustra  
   
+  
+  
+Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Berliner Philharmoniker / 정마에 Zeong /  May 10, 2021  
+  https://youtu.be/lNLsLwflVuQ  
+4.28K subscribers / 129,962 views //  
   
   
   
