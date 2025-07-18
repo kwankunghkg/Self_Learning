@@ -5,7 +5,8 @@ BLOG_GitHub_Ubermensch_20250718.txt
 ----------------------------------------  
   
 updated  
-last : 2025-07-18_09:43(UTC+8)  
+last : 2025-07-18_13:53(UTC+8)  
+prev : 2025-07-18_09:43(UTC+8)  
 prev : 2025-07-18_08:19(UTC+8)  
   
 ----------------------------------------  
@@ -57,6 +58,13 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
 2001: A Space Odyssey docking sequence - Blue Danube / Manfi123 / Jan 5, 2010  
   https://youtu.be/SpvOUnz4T7Q  
+  
+  
+  
+2001: A Space Odyssey | On The Shoulders of Kubrick: The Legacy of 2001 | Warner Bros. Entertainment / Warner Bros. Entertainment / Feb 6, 2013  
+  https://youtu.be/gW7-VnIqKhM  
+  4.31M subscribers / 520,930 views //  
+  
   
   
   
@@ -122,6 +130,45 @@ Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalama
 FULL : Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Berliner Philharmoniker / 정마에 Zeong /  May 10, 2021  
   https://youtu.be/lNLsLwflVuQ  
 4.28K subscribers / 129,962 views //  
+  
+  
+  
+----------------------------------------  
+  
+荷馬史詩《伊利亞特》《奧德賽》完整故事！希臘神話中最精彩的篇章！ / XiaoMingTalk /  Oct 11, 2024  #XiaoMingTalk #小鳴說 #小鳴說文藝  
+https://youtu.be/rFcwIiPQ1yg  
+236K subscribers / 168,614 views //  
+	#小鳴說 #小鳴說文藝 #XiaoMingTalk  
+	有這麼兩部史詩作品，只要你學外國文學，就肯定會接觸到它們，那就是《伊利亞特》和《奧德賽》。這兩部作品相傳是古希臘盲詩人荷馬所作，所以也被稱為《荷馬史詩》。今天就讓我們結合世界名畫，一口氣看完這兩個在西方家喻戶曉的經典傳奇故事吧。  
+	00:00 導入  
+	01:06 《伊利亞特》  
+	09:17 《奧德賽》  
+  
+  
+Iliad (伊里亞德)  Poem by Homer  
+  https://zh.wikipedia.org/zh-hk/%E4%BC%8A%E5%88%A9%E4%BA%9A%E7%89%B9  
+  https://en.wikipedia.org/wiki/Iliad  
+  
+Odyssey (奧德賽)  Book by Homer  
+  https://zh.wikipedia.org/zh-hk/%E5%A5%A5%E5%BE%B7%E8%B5%9B  
+  https://en.wikipedia.org/wiki/Odyssey  
+  
+Western canon 西方正典  
+  https://en.wikipedia.org/wiki/Western_canon  
+	Dante, Homer and Virgil in Raphael's Parnassus fresco (1511), key figures in the Western canon  但丁、荷馬和維吉爾三人是西方正典的重要人物  
+  
+  
+Publius Vergilius Maro (Classical Latin: [ˈpuːbliʊs wɛrˈɡɪliʊs ˈmaroː]; 15 October 70 BC – 21 September 19 BC), usually called Virgil or Vergil (/ˈvɜːrdʒɪl/ VUR-jil) in English, was an ancient Roman poet of the Augustan period. He composed three of the most famous poems in Latin literature: the Eclogues (or Bucolics), the Georgics, and the epic Aeneid. Some minor poems, collected in the Appendix Vergiliana, were attributed to him in ancient times, but modern scholars regard these as spurious, with the possible exception of a few short pieces.  
+  https://en.wikipedia.org/wiki/Virgil  
+  
+  
+  
+  
+----------------------------------------  
+  
+  
+  
+----------------------------------------  
   
   
   
