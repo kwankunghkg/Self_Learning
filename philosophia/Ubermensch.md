@@ -61,6 +61,12 @@ The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genea
   
 ----------------------------------------  
   
+  
+----------------------------------------  
+  
+  
+----------------------------------------  
+  
 "Sonnenaufgang" (Sunrise)  
 《日出》 理查·施特勞斯  
 查拉圖斯特拉如是說 (史特勞斯)  
