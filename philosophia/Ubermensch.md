@@ -1,7 +1,6 @@
   
 BLOG_GitHub_Ubermensch_20250718.txt  
-  https://github.com/kwankunghkg/Robotics/blob/main/    
-  
+  https://github.com/kwankunghkg/Self_Learning/blob/main/philosophia/Ubermensch.md  
   
 ----------------------------------------  
   
