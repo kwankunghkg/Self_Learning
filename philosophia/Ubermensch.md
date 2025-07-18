@@ -5,7 +5,7 @@ BLOG_GitHub_Ubermensch_20250718.txt
 ----------------------------------------  
   
 updated  
-last : 2025-07-18_08:19(UTC+8)  
+last : 2025-07-18_09:43(UTC+8)  
 prev : 2025-07-18_08:19(UTC+8)  
   
 ----------------------------------------  
@@ -35,7 +35,7 @@ Also sprach Zarathustra (Tone poem by Richard Strauss)
   
   
   
-Richard Strauss finds his Nietzsche. Episode 13 - Also Sprach Zarathustra by Richard Strauss. / Classics Explained / Jan 5, 2021  
+***** Richard Strauss finds his Nietzsche. Episode 13 - Also Sprach Zarathustra by Richard Strauss. / Classics Explained / Jan 5, 2021  
   https://youtu.be/9VMxtM7lXdg  
 	Anxious? Soul-searching? Existential? What better tonic than Richard Strauss's Also Sprach Zarathustra, a tone poem based on the life-affirming philosophies of Nietzsche!  
   
@@ -50,7 +50,7 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
   
   
-The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 超級歪 SuperY / Feb 10, 2021  
+***** The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 超級歪 SuperY / Feb 10, 2021  
   https://youtu.be/1wBD0UPeH88  
   
   
@@ -103,7 +103,7 @@ Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalama
   
   
   
-Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Berliner Philharmoniker / 정마에 Zeong /  May 10, 2021  
+FULL : Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Berliner Philharmoniker / 정마에 Zeong /  May 10, 2021  
   https://youtu.be/lNLsLwflVuQ  
 4.28K subscribers / 129,962 views //  
   
