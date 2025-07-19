@@ -5,7 +5,7 @@ BLOG_GitHub_Ubermensch_20250718.txt
 ----------------------------------------  
   
 updated  
-last : 2025-07-19_11:49(UTC+8)  
+last : 2025-07-19_20:28(UTC+8)  
 prev : 2025-07-19_08:37(UTC+8)  
 prev : 2025-07-18_13:53(UTC+8)  
 prev : 2025-07-18_08:19(UTC+8)  
@@ -92,12 +92,18 @@ Mobile Suit Gundam Openings (1979-2025) / by DefinitelyNotHere
 第1話 ガンダム大地に立つ!! 立於大地上的高達 / MOBILE SUIT GUNDAM - Episode 1 (EN.CN.HK.TW.IT.FR Sub) / GundamInfo / Dec 3, 2024  
   https://youtu.be/Jx5GcsjMOSs  
   
-Mobile Suit Gundam MOVIE-Mobile Suit Gundam Ⅲ: Encounters in Space (EN,CN,HK,TW,KR,FR,DE Sub) / GundamInfo / Jul 14, 2024  
+  
+Mobile Suit Gundam MOVIE trilogy  
+Ⅰ  
+  https://youtu.be/T8dw8dwN5sw  
+Ⅱ: Soldiers of Sorrow  
+  https://youtu.be/OzVAWX42kxA  
+Ⅲ: Encounters in Space  
   https://youtu.be/DX_7_8mP3oI  
   
   
   
-機動戰士高達  
+機動戰士高達 wiki  
   https://zh.wikipedia.org/zh-hk/%E6%A9%9F%E5%8B%95%E6%88%B0%E5%A3%ABGUNDAM  
   
   
@@ -201,6 +207,43 @@ Publius Vergilius Maro (Classical Latin: [ˈpuːbliʊs wɛrˈɡɪliʊs ˈmaroː]
   
   
 ----------------------------------------  
+  
+  
+  
+Mobile Suit Gundam MOVIE-Mobile Suit Gundam Ⅰ (EN,CN,HK,TW,KR,FR,DE Sub) / GundamInfo / Jul 12, 2024  
+https://youtu.be/T8dw8dwN5sw  
+  2.4M subscribers / 249,664 views //  
+	▶EN  
+	The first part of the theatrical trilogy of the classic mecha anime: Mobile Suit Gundam!  
+	In the year 0079 of the Universal Century, the war between the Earth Federation and the Principality of Zeon has reached a stalemate. However, when Zeon learns about the Federation’s new mobile suits being developed at the Side 7 space colony, Char Aznable launches an attack to destroy them. A boy named Amuro Ray finds himself caught up in the conflict when he becomes the unwilling pilot of the Federation’s new mobile suit - the Gundam.  
+	▶HK  
+	濃縮不朽名作「機動戰士高達」精華的劇場版三部曲第1彈！  
+	奠定機器人動畫史上全新金字塔的「機動戰士高達」劇場版三部曲第1彈。宇宙世紀0079，自護公國軍的馬沙･亞斯洛布部隊，盯上聯邦軍開發中的MS・高達，並侵入宇宙殖民地SIDE 7。居住在SIDE 7的阿寶・尼爾，作為高達駕駛員也因此被捲入戰爭的洪流之中。  
+  
+  
+Mobile Suit Gundam MOVIE-Mobile Suit Gundam Ⅱ: Soldiers of Sorrow (EN,CN,HK,TW,KR,FR,DE Sub) / GundamInfo / Jul 13, 2024  
+https://youtu.be/OzVAWX42kxA  
+  2.4M subscribers / 110,216 views //  
+	▶EN  
+	The second installment of the Mobile Suit Gundam movie trilogy!  
+	The war between the Federation and Zeon continues on Earth. Gundam pilot Amuro Ray begins to understand the true horrors of war after a deadly confrontation with Zeon ace pilot Ramba Ral and his mobile suit Gouf. As friends and comrades fall in battle, Amuro must find the will to overcome his sorrow and carry on.  
+	▶HK  
+	「機動戰士高達」劇場版3部曲第2彈！　在瀰漫哀傷的戰場上，阿寶看見的是？  
+	「機動戰士高達」劇場版3部曲第2彈。將TV版第16〜31話前半重新編輯。賴巴･拉路教導了在戰場上敗北即是死亡一事。龍・何塞為了拯救阿寶而丟了性命。阿寶對其抱持著淡淡戀愛之心，卻為了掩護白色基地而戰死的瑪姬路達中尉。經歷的離別與哀傷，將使阿寶逐漸成長。  
+  
+  
+  
+Mobile Suit Gundam MOVIE-Mobile Suit Gundam Ⅲ: Encounters in Space (EN,CN,HK,TW,KR,FR,DE Sub) / GundamInfo / Jul 14, 2024  
+https://youtu.be/DX_7_8mP3oI  
+  2.4M subscribers / 133,092 views //  
+	▶EN  
+	The epic conclusion of the Mobile Suit Gundam movie trilogy!  
+	With the conflict between the Federation and Zeon nearing an end, the battlefield moves to space. Gundam pilot Amuro Ray begins to realize his Newtype abilities, but first he must face off against the formidable Char Aznable and experience a fateful encounter with the mysterious Lalah. Who will be left standing? The stirring finale to this historic series!  
+	▶HK  
+	劇場版3部曲最終章！與新人類同伴的相遇，會帶給阿寶什麼樣的命運？  
+	重新編輯TV版第31話後半〜最終話的章節，劇場版3部曲最終章。與阿寶相遇的娜娜，為了從高達手中保護馬沙而香消玉殞。察覺自己做了無法挽回的事，阿寶為此震驚不已。在聯邦和自護的最終決戰中，在那盡頭，阿寶從中領悟了什麼呢？烙印在動畫史上的名作，就此完結。  
+  
+  
   
   
   
