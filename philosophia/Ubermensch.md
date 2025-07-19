@@ -57,6 +57,12 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
   
   
+  
+  
+----------------------------------------  
+  
+  
+  
 2001: A Space Odyssey docking sequence - Blue Danube / Manfi123 / Jan 5, 2010  
   https://youtu.be/SpvOUnz4T7Q  
   
@@ -65,6 +71,10 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
 2001: A Space Odyssey | On The Shoulders of Kubrick: The Legacy of 2001 | Warner Bros. Entertainment / Warner Bros. Entertainment / Feb 6, 2013  
   https://youtu.be/gW7-VnIqKhM  
   4.31M subscribers / 520,930 views //  
+  
+  
+  
+----------------------------------------  
   
   
   
@@ -81,6 +91,7 @@ Mobile Suit Gundam Openings (1979-2025) / by DefinitelyNotHere
   
 第1話 ガンダム大地に立つ!! 立於大地上的高達 / MOBILE SUIT GUNDAM - Episode 1 (EN.CN.HK.TW.IT.FR Sub) / GundamInfo / Dec 3, 2024  
   https://youtu.be/Jx5GcsjMOSs  
+  
 Mobile Suit Gundam MOVIE-Mobile Suit Gundam Ⅲ: Encounters in Space (EN,CN,HK,TW,KR,FR,DE Sub) / GundamInfo / Jul 14, 2024  
   https://youtu.be/DX_7_8mP3oI  
   
@@ -143,6 +154,14 @@ Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalama
 FULL : Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Berliner Philharmoniker / 정마에 Zeong /  May 10, 2021  
   https://youtu.be/lNLsLwflVuQ  
 4.28K subscribers / 129,962 views //  
+  
+  
+  
+----------------------------------------  
+  
+  
+  
+----------------------------------------  
   
   
   
