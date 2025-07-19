@@ -37,7 +37,7 @@ Also sprach Zarathustra (Tone poem by Richard Strauss)
   
   
   
-***** Richard Strauss finds his Nietzsche. Episode 13 - Also Sprach Zarathustra by Richard Strauss. / Classics Explained / Jan 5, 2021  
+### ***** Richard Strauss finds his Nietzsche. Episode 13 - Also Sprach Zarathustra by Richard Strauss. / Classics Explained / Jan 5, 2021  
   https://youtu.be/9VMxtM7lXdg  
 	Anxious? Soul-searching? Existential? What better tonic than Richard Strauss's Also Sprach Zarathustra, a tone poem based on the life-affirming philosophies of Nietzsche!  
   
@@ -54,10 +54,10 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
   
   
-***** 哲學爽歪歪 EP.1 The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 尼采哲學思想解析 | 悲劇的誕生 | 民主的墮落 | 善惡的起源 | 超人的出現 | 永恆回歸 / 超級歪 SuperY / Feb 10, 2021  
+### ***** 哲學爽歪歪 EP.1 The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 尼采哲學思想解析 | 悲劇的誕生 | 民主的墮落 | 善惡的起源 | 超人的出現 | 永恆回歸 / 超級歪 SuperY / Feb 10, 2021  
   https://youtu.be/1wBD0UPeH88  
   
-哲學爽歪歪 / by 超級歪 SuperY / •Playlist• 13 videos• 150,529 views  
+### ***** 哲學爽歪歪 / by 超級歪 SuperY / •Playlist• 13 videos• 150,529 views  
   https://www.youtube.com/playlist?list=PLLOAKAOTCAEwZhH-IstlSwMRUE38e_p7R  
   
   
