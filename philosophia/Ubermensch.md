@@ -5,7 +5,7 @@ BLOG_GitHub_Ubermensch_20250718.txt
 ----------------------------------------  
   
 updated  
-last : 2025-07-19_20:28(UTC+8)  
+last : 2025-07-19_20:40(UTC+8)  
 prev : 2025-07-19_08:37(UTC+8)  
 prev : 2025-07-18_13:53(UTC+8)  
 prev : 2025-07-18_08:19(UTC+8)  
@@ -45,18 +45,25 @@ Also sprach Zarathustra (Tone poem by Richard Strauss)
   
 Thus Spoke Zarathustra (查拉图斯特拉如是说) Book by Friedrich Nietzsche  
   https://zh.wikipedia.org/zh-hk/%E6%9F%A5%E6%8B%89%E5%9B%BE%E6%96%AF%E7%89%B9%E6%8B%89%E5%A6%82%E6%98%AF%E8%AF%B4  
-	《查拉圖斯特拉如是說》（德語：Also sprach Zarathustra）， 是德國哲學家尼采假託古波斯祆教創始人查拉圖斯特拉（又譯瑣羅亞斯德）之口於1885年完成的作品，是哲學史上最著名的哲學書籍之一。  
-	書中的查拉圖斯特拉有兩個動物相伴，分別為蛇和鷹。 查拉圖斯特拉的中心概念，人類是猿猴及尼采稱為「超人」（Übermensch）之間的一個過渡形式。  
+	《查拉圖斯特拉如是說》（德語：Also sprach Zarathustra），  
+	是德國哲學家尼采假託古波斯祆教創始人查拉圖斯特拉（又譯瑣羅亞斯德）之口於1885年完成的作品，是哲學史上最著名的哲學書籍之一。  
+	書中的查拉圖斯特拉有兩個動物相伴，分別為蛇和鷹。  
+	查拉圖斯特拉的中心概念，人類是猿猴及尼采稱為「超人」（Übermensch）之間的一個過渡形式。  
 Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra: Ein Buch für Alle und Keinen), also translated as Thus Spake Zarathustra, is a work of philosophical fiction written by German philosopher Friedrich Nietzsche; it was published in four volumes between 1883 and 1885. The protagonist is nominally the historical Zarathustra, more commonly called Zoroaster in the West.  
   https://en.wikipedia.org/wiki/Thus_Spoke_Zarathustra  
   
   
   
-***** 哲學爽歪Y EP.1 / The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 超級歪 SuperY / Feb 10, 2021  
+***** 哲學爽歪歪 EP.1 The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 尼采哲學思想解析 | 悲劇的誕生 | 民主的墮落 | 善惡的起源 | 超人的出現 | 永恆回歸 / 超級歪 SuperY / Feb 10, 2021  
   https://youtu.be/1wBD0UPeH88  
   
+哲學爽歪歪 / by 超級歪 SuperY / •Playlist• 13 videos• 150,529 views  
+  https://www.youtube.com/playlist?list=PLLOAKAOTCAEwZhH-IstlSwMRUE38e_p7R  
   
   
+  
+  
+----------------------------------------  
   
   
 ----------------------------------------  
