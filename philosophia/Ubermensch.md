@@ -164,7 +164,7 @@ Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalama
   
   
   
-FULL : Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Berliner Philharmoniker / 정마에 Zeong /  May 10, 2021  
+FULL LIVE : Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Berliner Philharmoniker / 정마에 Zeong /  May 10, 2021  
   https://youtu.be/lNLsLwflVuQ  
 4.28K subscribers / 129,962 views //  
   
