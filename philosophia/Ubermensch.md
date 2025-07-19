@@ -181,7 +181,10 @@ FULL LIVE : Richard Strauss: Also sprach Zarathustra /Herbert von Karajan · Ber
   
 ----------------------------------------  
   
-荷馬史詩《伊利亞特》《奧德賽》完整故事！希臘神話中最精彩的篇章！ / XiaoMingTalk /  Oct 11, 2024  #XiaoMingTalk #小鳴說 #小鳴說文藝  
+### Odyssey (奧德賽)  Book by Homer  
+  
+  
+荷馬史詩《伊利亞特》《奧德賽》完整故事！希臘神話中最精彩的篇章！ / XiaoMingTalk / Oct 11, 2024 / #XiaoMingTalk #小鳴說 #小鳴說文藝  
 https://youtu.be/rFcwIiPQ1yg  
 236K subscribers / 168,614 views //  
 	#小鳴說 #小鳴說文藝 #XiaoMingTalk  
