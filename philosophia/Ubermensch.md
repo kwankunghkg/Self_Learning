@@ -5,7 +5,8 @@ BLOG_GitHub_Ubermensch_20250718.txt
 ----------------------------------------  
   
 updated  
-last : 2025-07-18_13:53(UTC+8)  
+last : 2025-07-19_08:37(UTC+8)  
+prev : 2025-07-18_13:53(UTC+8)  
 prev : 2025-07-18_09:43(UTC+8)  
 prev : 2025-07-18_08:19(UTC+8)  
   
@@ -77,6 +78,10 @@ Mobile Suit Gundam (1979) Opening
   
 Mobile Suit Gundam Openings (1979-2025) / by DefinitelyNotHere  
   https://www.youtube.com/playlist?list=PLJFMcRYOCD5xh6DhuHrTu2Y89FjY3eJra  
+  
+MOBILE SUIT GUNDAM - Episode 1 (EN.CN.HK.TW.IT.FR Sub) / GundamInfo / Dec 3, 2024  
+  https://youtu.be/Jx5GcsjMOSs  
+  
   
   
 ----------------------------------------  
