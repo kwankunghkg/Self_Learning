@@ -152,7 +152,8 @@ R. Strauss: Also sprach Zarathustra, Op. 30: I. Prelude. Sonnenaufgang / Berlin 
   
   
   
-Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalamansispeed / Aug 19, 2023 / #nietzsche #classicalmusic #zarathustra    https://youtu.be/HXqtFjeI07g  
+Richard Strauss - Also sprach Zarathustra 1. "Sonnenaufgang" (Sunrise). / Kalamansispeed / Aug 19, 2023 / #nietzsche #classicalmusic #zarathustra  
+  https://youtu.be/HXqtFjeI07g  
 989 subscribers / views //  
 	Richard Georg Strauss (11 June 1864 – 8 September 1949) was a German composer and conductor best known for his tone poems and operas. Considered a leading composer of the late Romantic and early modern eras, he has been described as a successor of Richard Wagner and Franz Liszt. Along with Gustav Mahler, he represents the late flowering of German Romanticism, in which pioneering subtleties of orchestration are combined with an advanced harmonic style.  
 	"Also sprach Zarathustra" is a symphonic poem composed by Richard Strauss in 1896. It is inspired by Friedrich Nietzsche's philosophical novel of the same name, which explores the idea of the eternal recurrence of all events. The music of this symphonic piece is divided into a series of sections, each depicting a different aspect of Nietzsche's work.  
