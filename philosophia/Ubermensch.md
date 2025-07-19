@@ -52,7 +52,7 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
   
   
-***** The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 超級歪 SuperY / Feb 10, 2021  
+***** 哲學爽歪Y EP.1 / The Philosophy of Nietzsche: The Birth of Tragedy, Thus Spoke Zarathustra; Genealogy of Morality / 超級歪 SuperY / Feb 10, 2021  
   https://youtu.be/1wBD0UPeH88  
   
   
@@ -64,7 +64,6 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
   
 2001: A Space Odyssey | On The Shoulders of Kubrick: The Legacy of 2001 | Warner Bros. Entertainment / Warner Bros. Entertainment / Feb 6, 2013  
   https://youtu.be/gW7-VnIqKhM  
-  4.31M subscribers / 520,930 views //  
   
   
   
@@ -72,15 +71,19 @@ Thus Spoke Zarathustra: A Book for All and None (German: Also sprach Zarathustra
 ----------------------------------------  
   
 新類型人...  
+  
 Gundam theme song  
 Mobile Suit Gundam (1979) Opening  
   https://youtu.be/ZszGvGAR5NU  
-  
 Mobile Suit Gundam Openings (1979-2025) / by DefinitelyNotHere  
   https://www.youtube.com/playlist?list=PLJFMcRYOCD5xh6DhuHrTu2Y89FjY3eJra  
   
-MOBILE SUIT GUNDAM - Episode 1 (EN.CN.HK.TW.IT.FR Sub) / GundamInfo / Dec 3, 2024  
+第1話 ガンダム大地に立つ!! 立於大地上的高達 / MOBILE SUIT GUNDAM - Episode 1 (EN.CN.HK.TW.IT.FR Sub) / GundamInfo / Dec 3, 2024  
   https://youtu.be/Jx5GcsjMOSs  
+  
+機動戰士高達  
+  https://zh.wikipedia.org/zh-hk/%E6%A9%9F%E5%8B%95%E6%88%B0%E5%A3%ABGUNDAM  
+  
   
   
   
